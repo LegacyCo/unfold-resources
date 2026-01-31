@@ -10,7 +10,7 @@ topics:
   - kingdom
 themes:
   - Sermon on the Mount
-is_published: false
+is_published: true
 ---
 
 ## Commentary
