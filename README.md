@@ -11,7 +11,7 @@ unfold-resources/
 │   ├── Matthew_13.57.md
 │   ├── Mark_4.33.md
 │   └── Exodus_14.14.md
-└── teachings/           # Broader teaching content for Scribe AI
+└── scribe_ai/           # Broader teaching content for Scribe AI
     ├── sermons/
     │   └── the-heart-of-worship.md
     ├── essays/
@@ -140,9 +140,9 @@ Use these 3-letter codes for `book_id`:
 
 ---
 
-## Teachings
+## Scriobe AI
 
-Teachings are broader content (sermons, essays, Q&A) that Scribe AI uses to answer user questions. They are NOT tied to specific verses.
+Scribe AI resources are broader content (sermons, essays, Q&A) that Scribe AI uses to answer user questions. They are NOT tied to specific verses.
 
 ### Content Types
 
