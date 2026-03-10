@@ -1,6 +1,6 @@
 ---
 title: When Jesus Can't Be Himself
-book_id: Matthew
+book_id: MTH
 chapter: 13
 verse: 57
 resource_type:
