@@ -10,7 +10,7 @@ topics:
   - righteousness
 themes:
   - Prayer
-is_published: false
+is_published: true
 ---
 ## Commentary
 "...as they were able to hear it." The Greek word that we translate "able" is edynanto - the inherent capacity in someone to carry something out, the strength, ability, or power to do something. 
