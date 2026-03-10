@@ -1,6 +1,6 @@
 ---
 title: Alone With Jesus
-book_id: Mark
+book_id: MRK
 chapter: 4
 verse: 34
 resource_type:
