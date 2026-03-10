@@ -1,6 +1,6 @@
----
+O---
 title: The Plow of Waiting
-book_id: Exodus
+book_id: EXO
 chapter: 14
 verse: 14
 resource_type:
