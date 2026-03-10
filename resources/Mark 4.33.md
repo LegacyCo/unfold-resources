@@ -1,6 +1,6 @@
 ---
 title: The Ability to Hear
-book_id: Mark
+book_id: MRK
 chapter: 4
 verse: 33
 resource_type:
