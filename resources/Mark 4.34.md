@@ -10,7 +10,7 @@ topics:
   - solitude
 themes:
   - Wisdom Literature
-is_published: false
+is_published: true
 ---
 ## Commentary
 It was when the disciples were alone with Jesus that He explained all things to them. This word alone carries with it the idea of "being in possession of" (see John 1:11 - "He. came to His own..."). The disciples were the possession of the Lord, which gave them the right to be alone with Jesus. They belonged to Him in a way that those outside did not (see v11).
