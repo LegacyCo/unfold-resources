@@ -24,7 +24,7 @@ When God says that we are made in His image and likeness, it means that He creat
 
 The theologian D.S. Briscoe said this, "What is created always reflects something of the Creator. (We see this in art, music, architecture, poetry, and so on). So it is with men and women who know they, too, are created by a divine Creator; they long to reflect something of the Creator’s glory through their lives of obedience and faith...they are a people who have a sense of wonder, and this sense of wonder makes created people worshipers."
 
-In Matthew 22:17, the Pharisees try to trap Jesus by getting Him to talk politics. 
+There's a story in Matthew 22:17 where the Pharisees try to trap Jesus by getting Him to talk politics: 
 
 “Jesus, what do you think; is it lawful to pay taxes to Caesar, or not?"
 
@@ -36,7 +36,7 @@ The coin bore the image and inscription of Caesar. Jesus says,
 
 “Well, then give to Caesar the things that belong to him, and give to God the things that belong to Him." 
 
-In the same way that Caesar's coin had his own image engraved on it, so too, do we have God's image engraved in us. We belong to Him because we bear His image. As Ecclesiastes 3:11 says,
+In the same way that Caesar's coin had his own image engraved on it, so too, we have God's image engraved in us. We belong to Him because we bear His image. As Ecclesiastes 3:11 says,
 
 “Eternity has been placed on the heart of every man.” 
 
