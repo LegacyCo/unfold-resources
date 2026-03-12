@@ -13,7 +13,8 @@ is_published: true
 The mandate to be fruitful and multiply is one of the most important redemptive storylines in scripture. God uses the same language throughout Scripture:
 	-when He makes a covenant with Noah after the flood (Genesis 9:6-7), 
 	-when He makes a covenant with Abraham (Genesis 17:2, 6, Isaiah 51:1-2), 
-	-when He makes a covenant with the descendants of Abraham (Genesis 22:17-18), -when He makes a covenant with Isaac (Genesis 26:4), 
+	-when He makes a covenant with the descendants of Abraham (Genesis 22:17-18), 
+	-when He makes a covenant with Isaac (Genesis 26:4), 
 	-when He makes a covenant with Jacob (Genesis 28:3, Genesis 35:11), 
 	-when He makes a covenant with Israel in Egypt (Genesis 47:27, Exodus 1:7), 
 	-when He makes a covenant with Israel in the wilderness (Leviticus 26:9), 
@@ -40,4 +41,3 @@ Interestingly, what does Jesus say to His disciples right before He tells them t
 
 When the Son of Man regained humanities authority, He reiterated the Genesis 1:28 commission to go multiply His image in the earth.
 
-## Application
