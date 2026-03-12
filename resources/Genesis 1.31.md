@@ -10,13 +10,13 @@ themes:
 is_published: true
 ---
 ## Commentary
-God could have made all of creation in a moment, but He created progressively...gradually He brought His design into fullness:
-He takes the emptiness and brings light to it, 
-then He divides the waters, 
-then He gives shape to the land and establishes vegetation on it, 
-then He creates the great lights in the sky, 
-then the seas creatures and every winged bird, 
-and finally He creates man in His own image and likeness. 
+God could have made all of creation in a moment, but He created progressively...gradually He brought His design into fullness: He takes the emptiness and brings light to it:
+
+-then He divides the waters, 
+-then He gives shape to the land and establishes vegetation on it, 
+-then He creates the great lights in the sky, 
+-then the seas creatures and every winged bird, 
+-and finally He creates man in His own image and likeness. 
 
 The gradual unveiling of His creation reveals His nature; He is a God of progressive revelation and gradual unveiling of His plans and purposes. We can see this in Scripture and, if you were to take a step back and examine your own journey with Him, you can see this in how He has dealt with you. 
 
