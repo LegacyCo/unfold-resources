@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-The creation story is a story of God *speaking*. As Hebrews 11.3 says, 
+The creation story is a story of God *speaking*. As Hebrews 11:3 says, 
 
 "By faith we understand that the worlds were framed by the word of God, so that the things which are seen were not made of things which are visible."
 
