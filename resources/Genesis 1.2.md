@@ -10,10 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-"Formless and void." These words mean *wasteland*, *confusion*, *emptiness*. 
-The earth was formless and God gave it shape and purpose. 
-The universe was empty and he filled it. 
-The world was dark and He commanded light to flood it. 
+"Formless and void." These words mean *wasteland*, *confusion*, *emptiness*. The earth was formless and God gave it shape and purpose. The universe was empty and he filled it. The world was dark and He commanded light to flood it. 
 
 The creation story shows the resemblance between the empty void in creation before God brought life and light to that emptiness, and the state you and I were in before God gave us light to see Him. 
 
@@ -32,4 +29,4 @@ So much mystery surrounds the creation story, but one thing becomes clear in cre
 Before God created, verse 2 says "the Spirit of God was hovering over the face of the waters." The imagery here is that of a mother hen brooding over her eggs. There is nothing remote or detached about the way God works. He is a ‘hands-on’ Creator, committed to His work. He is not a *distant* God. He is not a far-off God recoiling by the brokenness, chaos, or darkness. Psalm 139:3 says that He is a God that is “intimately acquainted with all of our ways.” 
 
 ## Application
-Consider the nearness of God the next time you feel trapped in an impossible situation. the Holy Spirit is "hovering" over the formless void of your circumstance. He will release God into whatever situation He has the freedom to hover over.
+Consider the nearness of God the next time you feel trapped in an impossible situation. The Holy Spirit is "hovering" over the formless void of your circumstance. He will release God into whatever situation He has the freedom to hover over.
