@@ -17,7 +17,7 @@ The word that we translate "dominion" means to rule over, to have authority over
 
 God has determined for humanity to be His ambassadors in creation. When He created man, He gave man the authority to rule and reign on His behalf. In fact, He gave man so much authority that man had the authority to give it away. That's exactly what happens two chapters later when Adam and Eve sinned. The authority that God gave man was given to satan. We see the devil standing on this authority when he tempts Jesus in the wilderness, "All this authority I will give You, and their glory, for this has been delivered to me, and I give it to whomever I wish" (Luke 4:6).
 
-Of course, this was not the way for humanity to regain the authority that Adam lost in the garden. What was required was a Son of Adam to lay down his life as a sacrifice for the rest of the descendants of Adam. 
+Of course, this was not the way for humanity to regain the authority that Adam lost in the garden. What was required was a Son of Adam to lay down his life as a sacrifice for all descendants of Adam. 
 
 Which leads us to an important question. Have you ever wondered why Jesus wrapped Himself in flesh and came to us as a man? Like Paul says in Romans 8:3, God sent His Son in the “likeness of sinful flesh.” Why was this the plan? Jesus could’ve defeated death and sin by coming in divine glory and heavenly majesty, but instead He emptied Himself of those things and came to us wrapped in flesh. Why did He do this? 
 
