@@ -12,9 +12,8 @@ is_published: true
 ## Commentary
 When God separated light and darkness, He made an eternal distinction: darkness has no place in light, and light has no place in darkness. 
 
-Paul writes in 2 Corinthians 6.14, 
-	"Do not be unequally yoked together with unbelievers. For what fellowship has 
-	righteousness with lawlessness? And what communion has light with darkness?"
+Paul writes in 2 Corinthians 6:14, 
+	"Do not be unequally yoked together with unbelievers. For what fellowship has righteousness with lawlessness? And what communion has light with darkness?"
 
 If you are in Christ, your place is in the light, and you are to have no fellowship with the darkness…Jesus has called you out and separated you. “Come out from among them and be separate says the Lord” (2 Cor 6:17). The fruit of darkness can't come into the environment of light…God has separated those things. You can’t hide the things of the night in the realm of the day.
 
