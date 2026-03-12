@@ -40,13 +40,13 @@ We find another example of this in Jeremiah. The prophet describes Jerusalem in 
 
 The land reflects in the natural what the people of the land are experiencing in the spiritual.
 
-In Genesis 2, God didn't just place a man in the garden, He placed an image-bearer in the garden. Adam carried the image of God. And because of that, God gave Adam authority over the land *and* the responsibility of cultivating it. The garden wasn't a place free from work. Adam was in charge of stewarding what was growing in the garden (Genesis 2:15) and transform what is "not garden" into “garden" (that’s Genesis 1:28).
+In Genesis 2, God didn't just place a man in the garden, He placed an image-bearer in the garden. Adam carried the image of God. And because of that, God gave Adam authority over the land *and* the responsibility of cultivating it. The garden wasn't a place free from work. Adam was in charge of stewarding what was growing in the garden (Genesis 2:15) and transforming what is "not garden" into “garden" (that’s Genesis 1:28).
 
 As long as Adam was walking with God, the ground that he occupied was blessed. But as soon as he sins and disobeys God, the land turns to thorns and thistles. Not to get ahead of ourselves, but listen to what God says to Adam after he sins; this is Genesis 3:17-19, 
 
-"Then God said to Adam, “Because you have listened to the voice of your wife, and have eaten from the tree of which I commanded you not to eat: cursed is the ground for your sake; in toil you shall eat of it all the days of your life. Both thorns and thistles it shall bring forth for you…By the sweat of your brow you shall eat bread till you return to the ground."
+"Then God said to Adam, 'Because you have listened to the voice of your wife, and have eaten from the tree of which I commanded you not to eat: cursed is the ground for your sake; in toil you shall eat of it all the days of your life. Both thorns and thistles it shall bring forth for you…By the sweat of your brow you shall eat bread till you return to the ground.'"
 
-It wasn't just man that suffered the consequence of his sin, it was his land that also became separated from the life of God. The curse of man touched his land.
+It wasn't just man that suffered the consequence of his sin, it was his land that also became separated from the life of God. The curse of man touched the land that he occupied.
 
 God intends for the land to reflect the quality of people who are planted there; if they are blessed, so is the land...if they are separated from God, the land reflects that.
 
@@ -68,14 +68,14 @@ The *SECOND* thing necessary to point out here is the nations will not only know
 
 "Thus says the Lord GOD: 'On the day that I cleanse you from all your sin...The desolate land shall be cultivated instead of lying desolate. And all those who pass by will say, ‘This land that was desolate has become like the garden of Eden; and the wasted, desolate, and ruined cities are now fortified and inhabited.’ Then the nations which are left all around you shall know that I, the LORD, have rebuilt the ruined places and planted what was desolate.”
 
-When desolate places come alive with new life because righteous image bearers are planted in that land, then the nations see a full picture of a God they have never known before. God’s people testify of Him and so does the land. Evangelizing the nations is so much more than sharing the gospel and passing out Bibles. God has given His people an assignment to steward their garden and transform whatever is "not garden" into garden…and how well we do that has a direct effect on the Great Commission.
+When desolate places come alive with new life because righteous image bearers are planted in that land, then the nations see a full picture of a God they have never known before. God’s people testify of Him...and so does the land. Evangelizing the nations is so much more than sharing the gospel and passing out Bibles. God has given His people an assignment to steward their garden and transform whatever is "not garden" into garden…and how well we do that has a direct effect on the Great Commission.
 
 
 ## Application
-God wants to marry His people to a land...He wants to sow us in the earth. And by way of that covenant union between God's people and the land, the land comes to life in such a way that causes the nations to take notice. That covenant language between God’s people and their land is very important. Where do I get that covenant language from? Isaiah 62:4,
+God wants to marry His people to a land...He wants to sow us in the earth. And by way of that covenantal union between God's people and the land, the land comes to life in such a way that causes the nations to take notice. That covenant language between God’s people and their land is very important. Where do we get that covenant language from? Isaiah 62:4,
 
 “No longer shall God's people be called forsaken, and no longer shall the land be called desolate, but His people will be called Hephzibah (My delight is in you), and His land called Beulah (married); for the LORD delights in His people, and His land shall be married."
 
 Who is the land in covenant with? The people who possess the land. 
 
-Back to where we started in Genesis 2. When God created the land it is no accident that the land was waiting for an image bearer to take possession of it before it came to life. Remember, life in the kingdom can only come when there is first covenant. In fact, land all over the earth is still waiting for image-bearers to come take possession, and become planted there, so it can come to life again and bear witness that righteousness is planted there, the blessing has come, and the curse of Adam has broken by the blood of the Last Adam.
+Back to where we started in Genesis 2. When God created the land it is no accident that the land was waiting for an image bearer to take possession of it before it came to life. Remember, life in the kingdom can only come when there is first covenant. In fact, land all over the earth is still waiting for image-bearers to come take possession, and become planted there, so it can come to life again and bear witness that righteousness is planted there, the blessing has come, and the curse of Adam has been broken by the blood of the Last Adam.
