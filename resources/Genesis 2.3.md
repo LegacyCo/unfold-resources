@@ -18,4 +18,3 @@ Not an object. Not a sacred space. God first gives the quality of holiness to a 
 
 Heschel goes on to point out that it was only *after* Israel had worshipped a *thing*, the golden calf, that the holiness of a space/thing was commanded; the tabernacle. The holiness of time came first, the holiness of man came second, the holiness of space last.
 
-## Application
