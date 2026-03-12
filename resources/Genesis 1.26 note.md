@@ -33,7 +33,7 @@ The Hebrew word that we translate “man" is Adam. So Adam was not only the firs
 This will also become important when we start reading about the land in Genesis 2:5.
 
 ## Application
-As the redeemed children of God, we now ground the kingdom of God into the soil of our communities one act of obedience at a time. When we intersect with a situation that seems to contradict the victory of Christ's sacrifice, we stand on the authority that He has given us to bring what is out of alignment with His victory into alignment: sickness, hopelessness, famine, poverty, the lost, unforgiveness...any thing that presently doesn't bring glory to the Man who died to make all things new.
+As the redeemed children of God, we now ground the kingdom of God into the soil of our communities one act of obedience at a time. When we intersect with a situation that seems to contradict the victory of Christ's sacrifice, we stand on the authority that He has given us to bring what is out of alignment with His victory into alignment: sickness, hopelessness, famine, poverty, the lost, unforgiveness...anything that presently doesn't bring glory to the Man who died to make all things new.
 
 ## Cross References
 For more verses that discuss the authority God has given man, see also: Ps 8:6, 115:16, Jn 5:27, Rev 22:5
