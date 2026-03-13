@@ -26,7 +26,7 @@ To answer that question we need to remember what the garden is and what the gard
 
 The garden isn’t a metaphor for heaven. We don’t receive salvation, wait to die, and return to God in a garden called heaven…because the garden was never intended to be the final destination. The garden was the ground where man would walk with God and learn what it means to bear His image and authority in the earth SO THAT he could multiply that image in the earth, go outside of the garden, subdue that land, and transform it into garden, too. 
 
-So, if you believe that Jesus is who He says He is, salvation in Christ has restored you to that beautiful garden reality where God and man can walk together again, where God intends to mature you, shape you into the image of His Son, and teach you what it means to bear His image in the earth…SO THAT you can, in the language of the Great Commission, “go and make disciples of all nations”…transform “not garden” into garden.
+If you believe that Jesus is who He says He is, salvation in Christ has restored you to that beautiful garden reality where God and man can walk together again, where God intends to mature you, shape you into the image of His Son, and teach you what it means to bear His image in the earth…SO THAT you can, in the language of the Great Commission, “go and make disciples of all nations”…transform “not garden” into garden.
 
 So let’s ask the question again: why was there temptation in the garden?
 
