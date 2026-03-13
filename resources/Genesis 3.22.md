@@ -14,7 +14,7 @@ Adam's sin had not removed the tree of life, he still had opportunity to eat fro
 
 ------
 
-It's important for us to know the role of eating in the kingdom of God...or to put it another way, it's vital that we eat well. I don't mean making sure we get more vegetables in our diet; I mean rightly discerning spiritual things. There is a thread of eating woven through Scripture. As we follow that thread, we see the redemption more story clearly.
+It's important for us to know the role of eating in the kingdom of God...or to put it another way, it's vital that we eat well. I don't mean making sure we get more vegetables in our diet; I mean rightly discerning spiritual things. There is a thread of eating woven through Scripture. As we follow that thread, we see the redemption story more clearly.
 
 For Adam, eating well was a matter of life and death. As long as he ate from the proper tree, he received life from what he ate. But if he ate from the wrong source, he would receive death. 
 
@@ -26,7 +26,7 @@ Jesus says in John 6 that He is living bread, and whoever eats of His flesh rece
 
 What makes the communion meal life giving? What makes the Lord's Table different from every other table? Is there something special about that bread and that cup? Think of it this way; what made Peter's shadow unique? What made Paul's handkerchief special? What makes God's word powerful? When the spiritual reality of something is joined to the faith of an individual, when God is the source of that object, that meal, that word, then what God says about it becomes realized. It's just a shadow...until someone believes what Psalm 91 says, that we take refuge under the shadow of His wings, or as Malachi 4:2 says, "there is healing in his wings." It's just a Bible verse, until someone reads it and believes that it's true. And the loaf, it's just bread, until someone receives it as the life-giving bread of God that stepped down from heaven to restore us back to the garden.
 
-Access to the tree of life has been restored in Christ. Come all who are thirsty, drink. "You who have no money, come buy and eat...      Why do you spend money for what is not bread...Listen carefully to Me, and eat what is good, and delight yourself in abundance" ([[Isaiah 55.1-3]]).
+Access to the tree of life has been restored in Christ. Come all who are thirsty, drink. "You who have no money, come buy and eat...Why do you spend money for what is not bread...Listen carefully to Me, and eat what is good, and delight yourself in abundance" (Isaiah 55:1-3).
 
 ## Application
 The question is not “will we all die?” The question is: will we die and remain in the death of the first Adam, separated from God, *or* will we die the death of Adam, but as a result of faith in Jesus, be reborn in His likeness…joined in union with the source of life, living and reigning with Him forever? 
