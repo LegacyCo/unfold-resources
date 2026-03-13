@@ -35,4 +35,3 @@ Revelation 12 says that the serpent, the devil…the deceiver, has become a *gre
 
 Sons of Adam will always be food for the enemy. Only as reborn sons of God, does the enemy no longer feed on us.
 
-## Application
