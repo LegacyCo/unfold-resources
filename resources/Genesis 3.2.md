@@ -19,11 +19,7 @@ We see Eve having this conversation with the serpent about God and it’s full o
 Gossip is idle talk about others involving details that are not confirmed to be true. And it runs through churches across America like wildfire. Gossip is a murderous cancer…set on fire by an undisciplined tongue.
 
 Few people actually grasp the consequences of engaging in gossip and rumor. Watchman Nee writes this in his book The Character of God's Workman, 
-	"Due to their multitude of words, the power of many people is decreased. They 
-	like to talk about many things; they always have something to speak about. They 
-	not only talk a lot, they also love to spread words spoken by other people. Oh! Let 
-	us keep and guard our mouth as carefully as we ought to keep and guard our 
-	heart."
+	"Due to their multitude of words, the power of many people is decreased. They like to talk about many things; they always have something to speak about. They not only talk a lot, they also love to spread words spoken by other people. Oh! Let us keep and guard our mouth as carefully as we ought to keep and guard our heart."
 
 Jesus says in Luke 12:2-3,
 
@@ -43,4 +39,3 @@ Do you see the connection between rotten words proceeding from your mouth and gr
 
 May the Lord give us all the necessary grace to not participate in the kind of undisciplined talk that the enemy wants to use to destroy us.
 
-## Application
