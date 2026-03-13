@@ -30,6 +30,5 @@ Recall what was forced onto Jesus’s head as He hung on the cross.
 
 Jesus wore Adam’s thorns as a crown. Jesus took upon Himself your anxieties, the lies about wealth, and the desire for inferior things of this life…so that now, the soil of your heart can be made new. You can now receive the good seed of His word and watch fruit producing trees come to life where there was once thorns and thistles.
 
-That crown of thorns on Jesus’s head wasn’t just something the Roman soldiers did to mock our King…it represents something powerful that Jesus did for you and me.
+That crown of thorns on Jesus’s head wasn’t just something the Roman soldiers did to mock our King; it represents something powerful that Jesus did for you and me.
 
-## Application
