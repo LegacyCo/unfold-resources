@@ -12,19 +12,17 @@ is_published: true
 ## Commentary
 The serpent had successfully gotten Eve's eyes off of God and onto the forbidden tree. As she rolls the question around in her mind trying to understand what God actually said, she looks to the tree of knowledge for answers. She sees that the tree is...actually beautiful...and good.
 
-The tree of knowledge didn't present itself as evil; it wasn't rotten and smell-ey…there weren’t demons swinging from the branches…it looked good. 
+The tree of knowledge didn't present itself as evil; it wasn't rotten and smell-ey. There weren’t demons swinging from the branches. It looked good. 
 
 It wasn't the evil nature of the tree of knowledge that deceived Eve; it was the good. The good of that tree kills just as certainly as the evil.
 
-Sin will always present itself as something good…but in the end it always leads to death.
+Sin will always present itself as something good; but in the end it always leads to death.
 
-As she examined the tree, her logic kicked in. She begins to consider and think and reason in herself. In her confusion, she doesn’t go to the God of knowledge…she goes to the tree of knowledge. Rather than examining the wonder of all that God had given her, Eve examines the one thing she doesn’t have;
-	“why would God *not* want me to have this good thing…what’s so bad about this 
-	tree…is God keeping something from me?” 
+As she examined the tree, her logic kicked in. She begins to consider and think and reason in herself. In her confusion, she doesn’t go to the God of knowledge, she goes to the tree of knowledge. Rather than examining the wonder of all that God had given her, Eve examines the one thing she doesn’t have;
+	“Why would God *not* want me to have this good thing? What’s so bad about this tree? Is God keeping something from me?” 
 
 By questioning God’s word Eve questioned God’s character. It was a *question* that took Eve out of paradise…a question aimed at something God had said. When you question what He has said, you are questioning who He is.
-	“In the beginning was the Word, and the Word was with God and the Word 
-	was God” (John 1:1). 
+	“In the beginning was the Word, and the Word was with God and the Word was God” (John 1:1). 
 He is the word, the word is Him. 
 
 ------
@@ -40,7 +38,7 @@ By becoming a son of Adam, Jesus exposed Himself to everything you and I inherit
 
 When we grasp the full weight of what God did by becoming a man, then we will see the power of His victory on the cross for what it is…*and* what that victory now means for the rest of humanity.
 
-By becoming one of us, Jesus stepped into Adam’s brokenness. It’s the only way for humanity to be redeemed; flesh and blood was required to defeat our enemy. By entering into Adam’s world, the Son of God entered into Adam’s fallen mind. He puts on Adam’s broken glasses that distort who His Father is. Whatever it was that Adam projected onto God, and whatever it was that Adam felt when he heard the sound of God walking in the garden after the Fall, Jesus saw and Jesus felt. Jesus took on Adam’s delusion about who God is…yet He refused to believe the lie. By refusing to believe Adam’s lie, He took away the power of that lie forever. The enemy of us all has been defeated by One of us. There is a Man seated in the circle of the Trinity. Flesh and Blood has been exalted to the highest throne in heaven. Our God has scars on His body that forever declare His relentless love for us...a love that became fully exposed to the curse of Adam.
+By becoming one of us, Jesus stepped into Adam’s brokenness. It’s the only way for humanity to be redeemed; flesh and blood was required to defeat our enemy. By entering into Adam’s world, the Son of God entered into Adam’s fallen mind. He puts on Adam’s broken glasses that distort who His Father is. Whatever it was that Adam projected onto God, and whatever it was that Adam felt when he heard the sound of God walking in the garden after the Fall, Jesus saw and Jesus felt. Jesus took on Adam’s delusion about who God is, yet He refused to believe the lie. By refusing to believe Adam’s lie, He took away the power of that lie forever. The enemy of us all has been defeated by One of us. There is a Man seated in the circle of the Trinity. Flesh and Blood has been exalted to the highest throne in heaven. Our God has scars on His body that forever declare His relentless love for us.
 
 So where is Jesus in this passage? He’s crawling into Adam’s skin, and making room in the Trinity for that coat of flesh.
 
@@ -54,7 +52,7 @@ But as heirs with Christ, we are now children of God.
 
 How do we possibly go from being enemies of God, hiding with Adam in the bushes, to sons and daughters running to the arms of Abba? We ask the Spirit of God to renew our minds so that we no longer have the mind of Adam who hides from God...the corrupted mind that doesn’t know who God is...the mind that believes the enemies lie about God. 
 
-This is why true repentance, kingdom repentance, is so important. If repentance begins when I feel shame for something I’ve done, then the source of my repentance is my sin…and that will only lead to behavior modification. “What you’re doing is bad, which makes you bad, so stop doing what you’re doing.” That doesn’t fix the problem of me still thinking like Adam when I think about God. This is why the Bible talks so much about renewing our minds and having the mind of Christ. Because our minds have been darkened by the god of this age. That’s what 2 Corinthians 4:4 says, 
+This is why true repentance, kingdom repentance, is so important. If repentance begins when I feel shame for something I’ve done, then the source of my repentance is my sin, and that will only lead to behavior modification. “What you’re doing is bad, which makes you bad, so stop doing what you’re doing.” That doesn’t fix the problem of me still thinking like Adam when I think about God. This is why the Bible talks so much about renewing our minds and having the mind of Christ. Because our minds have been darkened by the god of this age. That’s what 2 Corinthians 4:4 says, 
 
 “The god of this world has blinded the minds of unbelievers so that they will not see the light of the gospel…”
 
