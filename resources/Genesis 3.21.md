@@ -14,4 +14,3 @@ The fig leaves that Adam had made only covered his waist. The clothes that God m
 
 Hebrews 9:22 says that without the shedding of blood there is no forgiveness of sin. Adam and Eve were the first to experience the saving power of one life being exchanged for another in blood.
 
-## Application
