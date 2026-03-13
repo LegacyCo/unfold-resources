@@ -12,7 +12,7 @@ is_published: true
 ## Commentary
 Adam was not created immortal in and of himself, he still needed a source of life to draw from. The question is this; was his source of life the actual tree or was the tree a metaphor of God being Adam's source of life? Not sure. But there is one thing for sure; there was something about the garden, and the tree in that garden, that sustained life for Adam. When Adam sinned he was cut off from the source of life and eventually died. I believe Genesis 3:22 confirms this. This is after Adam ate the fruit:
 
-“Then the LORD God said, ‘Behold, the man has become like one of Us, knowing good and evil. And now, lest he put out his hand and take of the tree of life, and eat, and live forever…”
+“Then the LORD God said, ‘Behold, the man has become like one of Us, knowing good and evil. And now, lest he put out his hand and take of the tree of life, and eat, and live forever…'”
 
 Two things to point out here:
 
@@ -20,7 +20,7 @@ Two things to point out here:
 
 For example; when God comes to Abraham in Genesis 18 to tell him that Sarah will give birth to Isaac, the son of promise, the Bible goes out of its way to specify that Abraham was standing by the Oak trees of Mamre. 
 
-Trees are mentioned on the first page of the Genesis, the first Psalm, the first page of the new testament, and the last page of Revelation. Trees are some of the oldest living things on earth…with some living thousands of years. There are actually olive trees in the Garden of Gethsemane that are still alive today that heard Jesus praying the night he was arrested.
+Trees are mentioned on the first page of Genesis, the first Psalm, the first page of the new testament, and the last page of Revelation. Trees are some of the oldest living things on earth…with some living thousands of years. There are actually olive trees in the Garden of Gethsemane that are still alive today that heard Jesus praying the night he was arrested.
  
 Even in describing the Messiah who was to come save His people, Scripture uses tree imagery. Jeremiah says that God will raise up a "righteous Branch" who will reign as King over His people (Jeremiah 23:5). Isaiah prophecies that the Messiah will be the, 
 
@@ -40,4 +40,3 @@ The *second* thing I want to point out about the tree of life is its connection 
 
 We see that there is something about the tree of life that God intended to be eternal. God planted a tree of life in the garden but sin caused man to be cut off from the life of that tree. But in the fullness of time a Shoot and a Branch sprang up from the root of that tree. And because that Branch was Himself nailed to a tree, because He was cut off from life, and brought back to life, He now has in Himself the source of life for the world and healing for the nations.
 
-## Application
