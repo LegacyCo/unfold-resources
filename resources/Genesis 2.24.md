@@ -38,4 +38,3 @@ When I breathe I’m very thankful that He has defined what is air and what is n
 
 And when I look at my parents I’m very thankful that He said one of you is man and one of you is woman…or else I wouldn’t be here.
 
-## Application
