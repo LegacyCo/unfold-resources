@@ -37,7 +37,7 @@ This is a direct reference to what Adam said when God formed Eve, “She is now 
 
 Paul then goes on to directly quote Genesis 2. He says,
 
-"For this cause shall a man leave his father and mother, and shall be joined to his wife, and they two shall be one flesh. This is a great mystery: but I speak concerning Christ and the church” (Ephesians 5:31-32).
+"For this cause shall a man leave his father and mother, and shall be joined to his wife, and the two shall be one flesh. This is a great mystery: but I speak concerning Christ and the church” (Ephesians 5:31-32).
 
 What is this great mystery? Is it the fact that a man shall leave his father and mother and be joined to his wife? That's no mystery. That's the most natural thing in every culture in the world. 
 
@@ -45,15 +45,14 @@ The mystery Paul speaks of is that Jesus, the SON of God, was willing to leave H
 
 The life of Adam’s bride came from the life of Adam. And as the Bride of Christ, our life comes from Him. Only that which comes from Christ can be called the church. If it doesn’t have its origin in Him, it’s not the church. Eve wasn’t made out of the dust of the world, she was made of Adam. In the same way, anything that we bring from the world into the church will result in mixture and the bride will become diluted. Our talents, our ideas, our strengths and hard work...they can do nothing but contaminate the purity of the Bride. He doesn’t want the world’s fingerprints on His Bride.
 
-No matter how good something may seem, if it does not issue from the side of the crucified Son then it can not possibly glorify God. God is only satisfied with what God Himself does. What we contribute to what He wants to do in the earth is simply the faith to believe that He is who He says He is. ****
+No matter how good something may seem, if it does not issue from the side of the crucified Son, then it can not possibly glorify God. God is only satisfied with what God Himself does. What we contribute to what He wants to do in the earth is simply the faith to believe that He is who He says He is. ****
 
 ## Application
 We are the bride. The Father’s eternal purpose is to gain a bride for His Son, which means we need God to break our tendency toward individualism. God calls us to be one with all others who have the life of God in them. We are not created to be alone, we are designed to live in community with others…to be the bride that Jesus died for.
 
 God said it is not good for man to be alone. You could say that before Eve was formed Adam wasn’t alone, he was with God. But God knew there was something in Adam that needed relationship with Eve. Even Adam's fellowship with God in the garden did not meet the need that Adam had for companionship. He had a Lord, but he still needed a bride. Isolation...even isolation with God, is not God's design. Community is the creation of God. God has placed in each of us something that needs to be in relationship with others. God Himself is a relational being. He is family. He Himself is community. Being created in His image means that the communal parts of His nature are also in us. 
 
-To put it plainly, living a life of isolation is not how God designed us. 
-Now, to put in new covenant church language, living a life of isolation from the body of Christ is not how God designed is. This is why Hebrews 10:25 tells us not to forsake the gathering together of the Body, as some of you are prone to do. 
+To put it plainly, living a life of isolation is not how God designed us. Now, to put in new covenant church language, living a life of isolation from the body of Christ is not how God designed is. This is why Hebrews 10:25 tells us not to forsake the gathering together of the Body, "as some of you are prone to do."
 
 "...you are no longer separated as strangers and foreigners, you are family members of the household of God, and together you are being built up as the dwelling place of God" (Ephesians 2:19-22).
 
