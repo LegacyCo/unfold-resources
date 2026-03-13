@@ -20,4 +20,3 @@ Jesus is, of course, the Word of God made flesh (John 1:1, John 1:14).
 
 What God placed at the east side of the Garden in the old covenant to keep man from unending life is now revealed in the new covenant as the *way* to life. The Living Word became flesh so that He could die on a tree and restore the way back to the tree of life. The flaming Sword has become the bleeding Lamb.
 
-## Application
