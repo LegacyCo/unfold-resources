@@ -10,9 +10,9 @@ themes:
 is_published: true
 ---
 ## Commentary
-Eden means delight, pleasure, bliss. God placed man a garden of delight and pleasure. It was the gift of God to plant man in a paradise. God always provides for His people. As Psalm 36:7-9 says,
+Eden means delight, pleasure, bliss. God placed man in a garden of delight and pleasure. It was the gift of God to plant man in a paradise. God always provides for His people. As Psalm 36:7-9 says,
 
-How precious is Your lovingkindness, O God! Therefore the children of men put their trust under the shadow of Your wings. They are abundantly satisfied with the fullness of Your house, and You give them drink from the river of Your Eden (delight). For with You is the fountain of life; In Your light we see light.
+"How precious is Your lovingkindness, O God! Therefore the children of men put their trust under the shadow of Your wings. They are abundantly satisfied with the fullness of Your house, and You give them drink from the river of Your Eden (delight). For with You is the fountain of life; In Your light we see light."
 
 God is our provider. And when our trust is in Him, He will satisfy us with His fountain of delight...His Eden. 
 
