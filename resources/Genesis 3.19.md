@@ -20,7 +20,7 @@ This is the judgment that has now come to each us; death is now our inheritance.
 
 “The dust (man) will return to the earth as it was: and the spirit will return to God who gave it.”
 
-When Adam ate, he didn’t immediately die…he didn’t die for another 900 years. So what does Scripture mean here by “death entered through sin”?
+When Adam ate, he didn’t immediately die…he didn’t die for another 900 years (see Genesis 5:5). So what does Scripture mean here by “death entered through sin”?
 
 The moment he ate the fruit, Adam died in that he became separated from God, the source of life. That’s what death is…separation from life. He died spiritually the moment he disobeyed God. 
 
@@ -28,7 +28,7 @@ When Paul wrote to the Ephesians in Ephesians 2:1 that they were, “dead in the
 
 In the parable of the prodigal son in Luke 15, Jesus told a story about a boy who ran away from his father and squandered his inheritance on sinful living. When he finally returns, the father says, “My son was dead, and is now alive again…” (Luke 15:24). In his separation from the father, the son was dead because of sin.
 
-Sin separates us from our Heavenly Father. To the rest of the world we may appear alive on the outside, but inside we are dead. We’re not connected to the source of life.
+Sin separates us from our Heavenly Father. If we are not born-again in Christ, we may appear alive on the outside to the rest of the world, but inside we are dead. We’re not connected to the source of life.
 
 
 ------
@@ -65,7 +65,4 @@ Did sorrow come to us because of sin? Jesus became the Man of sorrows for us, ac
 
 Has death come to us because of our sin? He was obedient unto death so that He could destroy the power of death forever from the inside out.
 
-And because of His obedience, because of His death, because of His sorrow, 
-because He sweat drops of blood, because He wore a crown of thorns, 
-because He became a curse, because He subjected Himself to the law, 
-because of His pain and His hunger and His thirst, which all came as a result of *our* sin—because of all this—Jesus has separated us from every one of those things, *and* the sin responsible for it, as far as the east is from the west. Praise Jesus forever!
+And because of His obedience, because of His death, because of His sorrow, because He sweat drops of blood, because He wore a crown of thorns, because He became a curse, because He subjected Himself to the law, because of His pain and His hunger and His thirst, which all came as a result of *our* sin—because of all this—Jesus has separated us from every one of those things, *and* the sin responsible for it, as far as the east is from the west. Praise Jesus forever!
