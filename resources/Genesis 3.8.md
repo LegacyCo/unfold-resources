@@ -15,10 +15,14 @@ Fear and shame caused Adam to hide from God. Let's look at shame first and then 
 If you go back in the story to chapter 2, which is before Adam and Eve sinned, v25 says that they were naked and *not* ashamed. But now, as a result of being guilty of disobeying God, they feel shame for the first time. 
 
 Guilt is a condition based on something you have done. 
+
 Shame is a feeling. 
+
 Guilt says, "I have done something bad." 
+
 Shame says, "I am bad." 
-Being able to acknowledge our guilt and experience conviction from the Holy Spirit when we have done something wrong is good...it acknowledges guilt and leads to repentance. 
+
+Being able to acknowledge our guilt and experience conviction from the Holy Spirit when we have done something wrong is good; it acknowledges guilt and leads to repentance. 
 
 But shame tries to lie to you and tell you that there is something fundamentally broken with who you are.
 
