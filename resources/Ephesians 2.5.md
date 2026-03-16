@@ -6,7 +6,7 @@ verse: 5
 resource_type:
   - video
 video_url: https://vimeo.com/1174018169?share=copy&fl=sv&fe=ci
-video_duration:
+video_duration: 1:04
 topics:
 themes:
 is_published: true
