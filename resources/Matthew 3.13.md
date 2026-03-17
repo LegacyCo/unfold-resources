@@ -22,4 +22,4 @@ It's as if John's instructions were to baptize all of Israel to "weed out" the o
 
 "And I have seen and bear witness that this is the Son of God" (John 1:34). "Behold, the Lamb of God!"
 
-John's baptism had a two-fold effect; it gave Israel a chance to respond to his message with repentance, *and* it revealed the Messiah who had no need of such repentance, but for the sake of fulfilling "all righteousness" ([[Matthew 3.15]]) it was permitted.
+John's baptism had a two-fold effect; it gave Israel a chance to respond to his message with repentance, *and* it revealed the Messiah who had no need of such repentance, but for the sake of fulfilling "all righteousness" (Matthew 3:15) it was permitted.
