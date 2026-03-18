@@ -1,8 +1,8 @@
 ---
 title: Creation Held in Bondage
-book_id:
-chapter:
-verse:
+book_id: ROM
+chapter: 8
+verse: 21
 resource_type:
   - note
 topics:
