@@ -1,8 +1,8 @@
 ---
 title: The Meekness of Christ
-book_id:
-chapter:
-verse:
+book_id: 2CO
+chapter: 10
+verse: 1
 resource_type:
   - note
 topics:
