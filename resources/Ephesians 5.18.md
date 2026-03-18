@@ -1,5 +1,5 @@
 ---
-title: Because I Lek
+title: Because I Leak
 book_id: EPH
 chapter: 5
 verse: 18
