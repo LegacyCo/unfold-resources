@@ -1,8 +1,8 @@
 ---
 title: Led In Triumph
-book_id:
-chapter:
-verse:
+book_id: 2CO
+chapter: 2
+verse: 14
 resource_type:
   - note
 topics:
