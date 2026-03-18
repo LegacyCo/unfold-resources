@@ -1,8 +1,8 @@
 ---
 title: The Astonishment of God
-book_id:
-chapter:
-verse:
+book_id: ISA
+chapter: 59
+verse: 16
 resource_type:
   - note
 topics:
