@@ -1,23 +1,20 @@
 ---
-title: The Ability to Hear
+title: The Power to Hear
 book_id: MRK
 chapter: 4
 verse: 33
 resource_type:
   - note
 topics:
-  - prayer
-  - obedience
 themes:
-  - Prayer
 is_published: true
 ---
-## Commentary
-"...as they were able to hear it." The Greek word that we translate "able" is edynanto - the inherent capacity in someone to carry something out, the strength, ability, or power to do something. 
+## Word Study
+Jesus spoke the word to His disciples "as they were able to hear." The Greek word for "able" is *edynanto.* Edynanto comes from the word *dynamis* (power). This is the inherent capacity in someone to carry something out, the strength, ability, or power to do something.
 
-The Greek word for "hear" is akouein. This word doesn't just mean to hear something audibly. It also embraces the idea of apprehending the thing heard with the mind and responding in conformity to it. For example; I don't just "hear" the fire alarm. I hear the fire alarm and respond by running out of the building.
-
-The point is this: Jesus speaks the word in proportion to the hearers capacity to hear AND respond to what He is speaking. As He says in v25, "Whoever has/does not have..." Has what? Edynanto - the capacity to honor His words by responding to them in obedience. To them He will share even more of His words. Or as Jesus says in v24, "With the same measure that you use, it will be measured to you; and to you who hear, more will be given."
+The Greek word for "hear" is *akouein*. Akouein doesn't simply mean to hear, it also embraces the idea of apprehending the thing heard with the mind *and* responding in conformity to it (see Matthew 18:15 - "If the brother who sinned hears and responds to the correction then you have gained your brother. But if he will not *akouein*...")
+ 
+The point is this: Jesus speaks the word in proportion (or as He says in v24 "with the same measure") to our ability to hear *and* respond.
 
 ## Application
-Don't just hear the words of Jesus, respond in obedience to what He is saying.
+How do we increase in our ability to hear and respond? Hebrews 5:14 tells us that those who *practice* have their capacity to understand trained/exercised. Just like any other muscle, we use it. When we use our "obedience muscle," it will increase in strength and ability. By hearing and responding in obedience to what we hear Jesus say, we discipline ourselves to be doers of the word, not just hearers (cf James 1:22).
