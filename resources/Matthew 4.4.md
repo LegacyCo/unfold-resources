@@ -1,6 +1,6 @@
 ---
 title: The Value of Bread
-book_id: LUK
+book_id: MAT
 chapter: 4
 verse: 4
 resource_type:

@@ -1,0 +1,52 @@
+---
+title: Our Help Comes From the Lord
+book_id: PSA
+chapter: 121
+verse: 1
+resource_type:
+  - note
+topics:
+themes:
+is_published: true
+---
+## Commentary
+This is taken from "A Long Obedience in the Same Direction" by Eugene Peterson: During the time this psalm was written and sung, Palestine was overrun with popular pagan worship. Much of this religion was practiced on hilltops. Shrines were set up, groves of trees were planted, sacred prostitutes both male and female were provided; persons were lured to the shrines to engage in acts of worship that would enhance the fertility of the land, would make you feel good, would protect you from evil. There were nostrums, protections, spells and enchantments against all the perils of the road. Do you fear the sun's heat? Go to the sun priest and pay for protection against the sun god. Are you fearful of the malign influence of moonlight? Go to the moon priestess and buy an amulet. Are you haunted by the demons that can use any pebble under your foot to trip you? Go to the shrine and learn the magic formula to ward off the mischief. Whence shall my help come? from Baal? from Asherah? from the sun priest? from the moon priestess??
+  
+They must have been a shabby lot: immoral, diseased, drunken-frauds and cheats all. The legends of Baal are full of the tales of his orgies, the difficulty of rousing him out of a drunken sleep to get his attention. Elijah taunting the priests of Baal ("You don't suppose that he has overslept do you, and needs to be waked up?" 1 Kings 18:27) is the evidence. But shabby or not, they promised help. A traveler in trouble would hear their offer.
+  
+That is the kind of thing a Hebrew, set out on the way of faith twenty-five hundred years ago, would have seen on the hills. It is what disciples still see. A person of faith encounters trial or tribulation and cries out "Help!" We lift our eyes to the mountains, and offers of help, instant and numerous, appear. "Does my strength come from mountains?" No. "My strength comes from GOD, who made heaven, and earth, and mountains.
+  
+A look to the hills for help ends in disappointment. For all their majesty and beauty, for all their quiet strength and firmness, they are finally just hills. And for all their promises of safety against the perils of the road, for all the allurements of their priests and priestesses, they are all, finally, lies. As Jeremiah put it: "Truly the hills are a delusion, the orgies on the mountains" (Jer 3:23 RSV).
+  
+And so Psalm 121 says no. It rejects a worship of nature, a religion of stars and flowers, a religion that makes the best of what it finds on the hills; instead it looks to the Lord who made heaven and earth. Help comes from the Creator, not from the creation. The Creator is always awake: he will never doze or sleep. Baal took long naps, and one of the jobs of the priests was to wake him up when someone needed his attention--and they were not always successful. The Creator is Lord over time: he "guards you when you leave and when you return," your beginnings and your endings. He is with you when you set out on your way; he is still with you when you arrive at your destination. You don't need to, in the meantime, get supplementary help from the sun or the moon. The Creator is Lord over all natural and supernatural forces: he made them. Sun, moon and rocks have no spiritual power. They are not able to inflict evil upon us: we need not fear any supernatural assault from any of them. "GOD guards you from every evil."
+  
+The promise of the psalm-and both Hebrews and Christians have always read it this way-is not that we shall never stub our toes but that no injury, no illness, no accident, no distress will have evil power over us, that is, will be able to separate us from God's purposes in us.
+  
+No literature is more realistic and honest in facing the harsh facts of life than the Bible. At no time is there the faintest suggestion that the life of faith exempts us from difficulties. What it promises is preservation from all the evil in them. On every page of the Bible there is recognition that faith encounters troubles. The sixth petition in the Lord's Prayer is "Lead us not into temptation, but deliver us from evil." That prayer is answered every day, sometimes many times a day, in the lives of those who walk in the way of faith. St. Paul wrote, "No test or temptation that comes your way is beyond the course of what others have had to face. All you need to remember is that God will never let you down; he'll never let you be pushed past your limit; he'll al ways be there to help you come through it" (1 Cor 10:13).
+  
+Three times in Psalm 121 God is referred to by the personal name Yahweh, translated as GOD. Eight times he is described as the guardian, or as the one who guards. He is not an impersonal executive giving orders from on high; he is present help every step of the way we travel. Do you think the way to tell the story of the Christian journey is to describe its trials and tribulations? It is not. It is to name and to describe God who preserves, accompanies and rules us.
+  
+All the water in all the oceans cannot sink a ship unless it gets inside. Nor can all the trouble in the world harm us unless it within us. That is the promise of the psalm: "GOD guards gets you from every evil." Not the demon in the loose stone, not the fierce attack of the sun god, not the malign influence of the moon goddess-not any of these can separate you from God's call and purpose. From the time of your repentance that got you out of Kedar and Meshech to the time of your glorification with the saints in heaven, you are safe: "GOD guards you from every evil." None of the things that happen to you, none of the troubles you encounter, have any power to get between you and God, dilute his grace in you, divert his will from you (see Rom 8:28, 31-32).
+  
+The only serious mistake we can make when illness comes, when anxiety threatens, when conflict disturbs our relationships with others is to conclude that God has gotten bored looking after us and has shifted his attention to a more exciting Christian, or that God has become disgusted with our meandering obedience and decided to let us fend for ourselves for a while, or that God has gotten too busy fulfilling prophecy in the Middle East to take time now to sort out the complicated mess we have gotten ourselves into. That is the only serious mistake we can make. It is the mistake that Psalm 121 prevents: the mistake of supposing that God's interest in us waxes and wanes in response to our spiritual temperature.
+  
+The great danger of Christian discipleship is that we should have two religions: a glorious, biblical Sunday gospel that sets us free from the world, that in the cross and resurrection of Christ makes eternity alive in us, a magnificent gospel of Genesis and Romans and Revelation; and, then, an everyday religion that we make do with during the week between the time of leaving the world and arriving in heaven. We save the Sunday gospel for the big crises of existence. For the mundane trivialities-the times when our foot slips on a loose stone, or the heat of the sun gets too much for us, or the influence of the moon gets us down we use the everyday religion of the Reader's Digest reprint, advice from a friend, an Ann Landers column, the huckstered wisdom of a talk-show celebrity. We practice patent-medicine religion. We know that God created the universe and has accomplished our eternal salvation. But we can't believe that he condescends to watch the soap opera of our daily trials and tribulations; so we purchase our own remedies for that. To ask him to deal with what troubles us each day is like asking a famous surgeon to put iodine on a scratch.
+  
+But Psalm 121 says that the same faith that works in the big things works in the little things. The God of Genesis 1 who brought light out of darkness is also the God of this day who guards you from every evil.
+  
+The Christian life is not a quiet escape to a garden where we can walk and talk uninterruptedly with our Lord, not a fantasy trip to a heavenly city where we can compare our blue ribbons and gold medals with those of others who have made it to the winners' circle. To suppose that, or to expect that, is to turn the nut the wrong way. The Christian life is going to God. In going to God Christians travel the same ground that everyone else walks on, breathe the same air, drink the same water, shop in the same stores, read the same newspapers, are citizens under the same governments, pay the same prices for groceries and gasoline, fear the same dangers, are subject to the same pressures, get the same distresses, are buried in the same ground.
+  
+The difference is that each step we walk, each breath we breathe, we know we are preserved by God, we know we are accompanied by God, we know we are ruled by God; and therefore no matter what doubts we endure or what accidents we experience, the Lord will guard us from every evil, he guards our very life. We know the truth of Luther's hymn:
+  
+And though this world, with devils filled 
+Should threaten to undo us, 
+We will not fear, for God hath willed 
+His truth to triumph through us.
+The prince of darkness grim, 
+We tremble not for him; 
+His rage we can endure, 
+For lo! his doom is sure; One little word shall fell him.
+  
+We Christians believe that life is created and shaped by God and that the life of faith is a daily exploration of the constant and countless ways in which God's grace and love are experienced.
+  
+Psalm 121, learned early and sung repeatedly in the walk with Christ, clearly defines the conditions under which we live out our discipleship-which, in a word, is God. Once we get this psalm in our hearts it will be impossible for us to gloomily suppose that being a Christian is an unending battle against omi nous forces that at any moment may break through and overpower us. Faith is not a precarious affair of chance from satanic assaults. It is the solid, massive, secure experience of God, who keeps all evil from getting inside us, who guards our life, who guards us when we leave and when we return, who guards us now, who guards us always.
