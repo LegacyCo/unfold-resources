@@ -12,7 +12,7 @@ is_published: true
 ## Commentary
 Righteousness is the state of one who is as He ought to be. To be righteous means to be in alignment with how you are originally designed by God. It means you are living as God intended when He said, "Let us make man in our image, according to our likeness" (Genesis 1:26). Being the righteousness of God is God looking at you and saying "you remind of Me." 
 
-We can't grow in righteousness. Righteous is something you either are or are not. And if you are in Christ, then His righteousness has become your righteousness. You can grow in your understanding of righteousness...and you should. But you can't become more of something you already are; because righteousness is an imputation, or a transfer, not a process. Righteousness is transferred to us on the basis of faith. For example, Paul writes in Romans 4:3, "Abraham believed God, and it was credited to him for righteousness." Faith was the gate that opened up the transfer of righteousness from God to Abraham.
+We can't grow in righteousness. Righteous is something you either are or are not. And if you are in Christ, then His righteousness has become your righteousness. You can grow in your understanding of righteousness...and you should. But you can't become more of something you already are; because righteousness is an imputation, a transfer, not a process. Righteousness is transferred to us on the basis of faith. For example, Paul writes in Romans 4:3, "Abraham believed God, and it was credited to him for righteousness." Faith was the gate that opened up the transfer of righteousness from God to Abraham.
 
 ------
 
