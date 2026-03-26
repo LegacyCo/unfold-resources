@@ -24,12 +24,18 @@ We have to know that we *are* sanctified before we can actually *live* sanctifie
 Notice the *past* tense verbs in these verses:
 
 **1 Corinthians 6:11** - "And such were some of you. But you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus and by the Spirit of our God."  
-Hebrews 10:10 - "By that will we have been sanctified through the offering of the body of Jesus Christ once for all."  
-Hebrews 13:12 - "Therefore Jesus also, that He might sanctify the people with His own blood, suffered outside the gate."  
-Hebrews 2:11 - "For both He who sanctifies and those who are sanctified are all from one Father; for this reason He is not ashamed to call them brothers and sisters."  
-Hebrews 10:29 - Since we have confidence to enter the sanctuary, do not defile "the blood of the covenant by which each one has been sanctified."  
-Ephesians 5:25-27 - "Husbands, love your wives, just as Christ also loved the church and gave Himself for her, that He might sanctify and cleanse her with the washing of water by the word, that He might present her to Himself a glorious church, not having spot or wrinkle or any such thing, but that she should be holy and without blemish."  
-2 Thessalonians 2:13 - "God from the beginning chose you for salvation through sanctification by the Spirit and belief in the truth."  
+
+**Hebrews 10:10** - "By that will we have been sanctified through the offering of the body of Jesus Christ once for all."  
+
+**Hebrews 13:12** - "Therefore Jesus also, that He might sanctify the people with His own blood, suffered outside the gate." 
+
+**Hebrews 2:11** - "For both He who sanctifies and those who are sanctified are all from one Father; for this reason He is not ashamed to call them brothers and sisters." 
+
+**Hebrews 10:29** - Since we have confidence to enter the sanctuary, do not defile "the blood of the covenant by which each one has been sanctified."
+
+**Ephesians 5:25-27** - "Husbands, love your wives, just as Christ also loved the church and gave Himself for her, that He might sanctify and cleanse her with the washing of water by the word, that He might present her to Himself a glorious church, not having spot or wrinkle or any such thing, but that she should be holy and without blemish."
+
+**2 Thessalonians 2:13** - "God from the beginning chose you for salvation through sanctification by the Spirit and belief in the truth."  
 1 Peter 1:2 - "(who are chosen) according to the foreknowledge of God the Father, by the sanctifying work of the Spirit, to obey Jesus Christ and be sprinkled with His blood." 
 
 Notice the *ongoing* verbs in these verses:
