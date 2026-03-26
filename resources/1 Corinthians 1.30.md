@@ -39,7 +39,11 @@ Notice the *past* tense verbs in these verses:
 1 Peter 1:2 - "(who are chosen) according to the foreknowledge of God the Father, by the sanctifying work of the Spirit, to obey Jesus Christ and be sprinkled with His blood." 
 
 Notice the *ongoing* verbs in these verses:
-Hebrews 10:14 - "For by one offering He has perfected forever those who are being sanctified"  
-1 Thessalonians 5:23 - "Now may the God of peace Himself sanctify you completely; and may your whole spirit, soul, and body be preserved blameless at the coming of our Lord Jesus Christ."  
-2 Timothy 2:21 - "Therefore if anyone cleanses himself from the latter, he will be a vessel for honor, sanctified and useful for the Master, prepared for every good work."  
-Romans 6:19, 22 - "...just as you presented the parts of your body as slaves to impurity and to lawlessness, resulting in further lawlessness, so now present your body’s as slaves to righteousness, resulting in sanctification...But now having been freed from sin and enslaved to God, you derive your benefit, resulting in sanctification, and the outcome, eternal life."  
+
+**Hebrews 10:14** - "For by one offering He has perfected forever those who are being sanctified"
+
+**1 Thessalonians 5:23** - "Now may the God of peace Himself sanctify you completely; and may your whole spirit, soul, and body be preserved blameless at the coming of our Lord Jesus Christ."
+
+**2 Timothy 2:21** - "Therefore if anyone cleanses himself from the latter, he will be a vessel for honor, sanctified and useful for the Master, prepared for every good work."
+
+**Romans 6:19, 22** - "...just as you presented the parts of your body as slaves to impurity and to lawlessness, resulting in further lawlessness, so now present your body’s as slaves to righteousness, resulting in sanctification...But now having been freed from sin and enslaved to God, you derive your benefit, resulting in sanctification, and the outcome, eternal life."  
