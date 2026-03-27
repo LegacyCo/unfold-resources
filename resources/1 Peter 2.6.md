@@ -24,7 +24,7 @@ He decides what stays and what gets torn out.
 
 To the believer, this is great news. It means your life is no longer held together by performance, image, control, or self-effort. The weight comes off. The cornerstone carries it. "Take My yoke upon you...My yoke is easy and My burden is light" (Matthew 11:29-20).
 
-Right after calling Him precious, Peter says this same rejected stone becomes “a stone of stumbling, and a rock of offense.” Here’s why: A cornerstone demands surrender. It confronts every other “cornerstone” we’ve been using—approval, comfort, certainty, success, being right, being seen, being in control.
+Right after calling Him precious, Peter writes that this same rejected stone can also be “a stone of stumbling, and a rock of offense.” Here’s why: A cornerstone demands surrender. It confronts every other “cornerstone” we’ve been using—approval, comfort, certainty, success, being right, being seen, being in control.
 
 Jesus offends us in very specific ways:
 He won’t negotiate.
