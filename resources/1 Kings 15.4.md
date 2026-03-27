@@ -20,7 +20,7 @@ Years before Abijam ever sat on the throne in Jerusalem, his great grandfather, 
 ## Application
 Your life will impact generations. You may never see the multigenerational fruit of "doing what is right in the eyes of the Lord," but eternity will testify that those who come after you are blessed because of your journey with Jesus. 
 
-And you may think, "There's now way, I've made too many mistakes." God's not looking for perfection in His people. David was an imperfect man. Even as v5 of this passage acknowledges, David was faithful to God "except in the matter of Uriah the Hittite." That's a pretty big exception! That's an acknowledgement of one of David's biggest mistakes - when he had Uriah killed so he could take the man's wife, Bathsheba (see 2 Samuel 11). 
+And you may think, "There's no way, I've made too many mistakes." God's not looking for perfection in His people. David was an imperfect man. Even as v5 of this passage acknowledges, David was faithful to God "except in the matter of Uriah the Hittite." That's a pretty big exception! That's an acknowledgement of one of David's biggest mistakes - when he had Uriah killed so he could take the man's wife, Bathsheba (see 2 Samuel 11). 
 
 It wasn't a flawless life that blessed David's descendants, it was a heart that was consistently after God that set David apart. It was David's full surrender to God that caused a blessing to flow through the generations that came after him. 
 
