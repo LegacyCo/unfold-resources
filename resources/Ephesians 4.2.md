@@ -1,0 +1,23 @@
+---
+title: Polished Stones
+book_id: EPH
+chapter: 4
+verse: 2
+resource_type:
+  - note
+topics:
+themes:
+is_published: true
+---
+## Commentary
+This is an excerpt from "Our One Great Act of Fidelity" by Ronald Rolheiser: As a young seminarian I spent a summer working in a retreat house. The priest directing the house had a curious hobby: he polished stones. During long, solitary walks he would watch for small stones that looked interesting, and when he found one that looked as if it might have value, he would bring it back to his workshop. There he had a small barrel-drum that was itself filled with small, very hard stones. He would take the stone he had found, his potential gem, and place it inside the barrel-drum, add some water, seal the drum tightly, and turn on an electric motor that would slowly rotate the drum. After several weeks of this, he would open the drum and search for his little stone. Many times he would find that it had simply disappeared, the weeks of grinding having reduced it to gravel and sand. If the stone, however, had value, he would find it now, polished, gleaming, a gem with all its rough edges rubbed off and all useless gravel and sand knocked out of it.
+  
+There is something in that image about our lives in family and community…My simple thought then was, Yes, that makes sense! When you live within a family or some other community, it gives you a lot of chances to practice patience, forgiveness, and understanding as you deal with other people's faults! How wrong I was! What that expression suggests is not, first of all, that we grow in charity and maturity by putting up patiently with other people's faults, but that real relationship, actual interaction within family and community, deflates our fantasies, makes us see reality, punctures our self-centeredness, and against every protest, denial, and rationalization we can muster, shows us how selfish and immature we often are.
+  
+We cannot live very long within any community, marriage, family, religious community, or genuine friendship - without becoming aware of our faults and narrowness. We either begin to grow up, or we leave. Sadly, today the temptation is most often to leave. The misguided theory is that we grow mature by growing away, especially away from the family and community within which, by circumstance, we find ourselves. The idea is that we will be happy - and available for real family and friendship - if we are free spirits, soaring, unattached, unencumbered.
+  
+I remember a young nun to whom I once served as spiritual director. Before entering the convent, she had lived alone in her own apartment and was quite popular. She had many friends and was, to her own mind, quite a mature, giving, and unselfish person. Not long after joining a religious community, where she lived in close quarters with other novices and those directing the novitiate, she began to experience major problems with her relationships. She was often at odds with her peers and her directors, who, tactfully and otherwise, told her that she was somewhat self-centered and immature. She was particularly frustrated because often the tensions arose over very petty things. "It must be the community that's causing this," she told me during one of our sessions. "I was never a petty, selfish person when I lived alone!" Then, when I asked why she continued to stay in the convent if that was the case, she replied: "Because, in my better moments, I know that if I ran off now and got married, probably most of the things that are happening here would begin to happen again! Some of this stuff would catch up with me again. When I lived alone it was lonely, but it was easier. You didn't have to live your life under a microscope. But you could easily fool yourself, too!"
+  
+What was happening to her in that community? The stone was being polished! She was being churned in the barrel-drum that is called family, community. The other stones were knocking some rough edges off of her and rubbing her free of considerable useless gravel and sand. It was painful and humiliating for her, but she was learning the most valuable lesson of all, how to share your life in reality as opposed to fantasy. She was in a school of charity. She was being purified.
+## Application
+Family and community aren't boring; they're terrifying. They're too full of searing revelations; there we have no place to hide. In family life, our selfishness and immaturities are reflected back to us through eyes that are steady and unblinking. Staying within them is often the hell that leads to heaven.
