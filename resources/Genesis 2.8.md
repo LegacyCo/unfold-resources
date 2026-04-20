@@ -26,12 +26,17 @@ This is what I find interesting; if you look at a map of the Middle East and mov
 
 This may be interesting, but what makes this significant? Genesis 2:7 says that God formed man from the dust of the earth and then God places man in the garden "toward the east." Translation: Adam wasn't created in Eden, he was created from the ground *west* of Eden.
 
-As we move through God’s story in Scripture, you will notice multiple instances of God’s people moving west. For example; 
-	-Abraham came from the east and moved west into the land of Canaan. 
-	-When God brought Israel into the Promised Land they didn't come from the south, which would’ve made sense practically. They came from the east moving west across the Jordan. 
-	-When Jesus came riding into Jerusalem on a donkey He came from the Mount of Olives...which is east of the city. The triumphal entry of the Messiah into Jerusalem was a move westward. 
-	-After His resurrection when Jesus ascended, He was standing on the Mount of Olives. Angels appear to the disciples and tell them that He will come back the same way He left…by way of the Mount of Olives, east of Jerusalem…once again making a triumphal entry into the city from the east. Zechariah actually prophecies this in Zechariah 14:4,
-		"And in that day His feet will stand on the Mount of Olives, which faces Jerusalem on the east. And the Mount of Olives shall be split in two, from east to west, making a very large valley; half of the mountain shall move toward the north and half of it toward the south." 
+As we move through God’s story in Scripture, you will notice multiple instances of God’s people moving west. 
+
+For example: 
+
+-Abraham came from the east and moved west into the land of Canaan. 
+
+-When God brought Israel into the Promised Land they didn't come from the south, which would’ve made sense practically. They came from the east moving west across the Jordan. 
+
+-When Jesus came riding into Jerusalem on a donkey He came from the Mount of Olives...which is east of the city. The triumphal entry of the Messiah into Jerusalem was a move westward. 
+
+-After His resurrection when Jesus ascended, He was standing on the Mount of Olives. Angels appear to the disciples and tell them that He will come back the same way He left…by way of the Mount of Olives, east of Jerusalem…once again making a triumphal entry into the city from the east. Zechariah actually prophecies this in Zechariah 14:4, "And in that day His feet will stand on the Mount of Olives, which faces Jerusalem on the east. And the Mount of Olives shall be split in two, from east to west, making a very large valley; half of the mountain shall move toward the north and half of it toward the south." 
 
 Follow my train of thought here; man was not formed in the garden, he was formed west of the garden, and then brought eastward into the garden. Could it be that man was formed from the dust of the Promised Land and brought eastward to a garden where he would learn what it meant to bear God's image…so that he could return west to the land he was formed from and fill that land with God's image? 
 
