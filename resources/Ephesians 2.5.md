@@ -1,5 +1,5 @@
 ---
-title: Grace Can't Be Stopeed
+title: Grace Can't Be Stopped
 book_id: EPH
 chapter: 2
 verse: 5
