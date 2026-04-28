@@ -1,8 +1,8 @@
 ---
 title: Anchored or Propelled by the Tongue?
-book_id: MAT
-chapter: 12
-verse: 37
+book_id: EPH
+chapter: 4
+verse: 29
 resource_type:
   - video
 video_url: https://vimeo.com/1187409397?share=copy&fl=sv&fe=ci

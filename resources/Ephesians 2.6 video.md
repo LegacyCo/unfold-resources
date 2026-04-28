@@ -1,8 +1,8 @@
 ---
 title: The Showcase of Grace
-book_id: 1PE
+book_id: EPH
 chapter: 2
-verse: 9
+verse: 6
 resource_type:
   - video
 video_url: https://vimeo.com/1174030492?share=copy&fl=sv&fe=ci

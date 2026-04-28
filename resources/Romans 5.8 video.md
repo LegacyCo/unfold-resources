@@ -1,8 +1,8 @@
 ---
 title: Jesus Died for Love
-book_id: JHN
-chapter: 3
-verse: 16
+book_id: ROM
+chapter: 5
+verse: 8
 resource_type:
   - video
 video_url: https://vimeo.com/1174026127?share=copy&fl=sv&fe=ci

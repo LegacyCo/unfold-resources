@@ -1,11 +1,11 @@
 ---
-title: Jesus Died for Love
+title: Re-Gened
 book_id: JHN
 chapter: 3
-verse: 16
+verse: 3
 resource_type:
   - video
-video_url: https://vimeo.com/1174026127?share=copy&fl=sv&fe=ci
+video_url: https://vimeo.com/1187132932?share=copy&fl=sv&fe=ci
 video_duration: 1:18
 topics:
 themes:

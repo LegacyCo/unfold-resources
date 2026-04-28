@@ -1,8 +1,8 @@
 ---
 title: Your Life Has A Frequency
-book_id: 2CO
+book_id: PHP
 chapter: 2
-verse: 14
+verse: 15
 resource_type:
   - video
 video_url: https://vimeo.com/1174227469?share=copy&fl=sv&fe=ci

@@ -1,8 +1,8 @@
 ---
 title: Why the Table Matters
-book_id: DAN
-chapter: 1
-verse: 8
+book_id: 1CO
+chapter: 10
+verse: 18
 resource_type:
   - video
 video_url: https://vimeo.com/1187136353?share=copy&fl=sv&fe=ci

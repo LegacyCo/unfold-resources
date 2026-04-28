@@ -1,8 +1,8 @@
 ---
 title: Jesus vs. Other Religions
-book_id: ISA
-chapter: 59
-verse: 16
+book_id: ACT
+chapter: 4
+verse: 12
 resource_type:
   - video
 video_url: https://vimeo.com/1187407401?share=copy&fl=sv&fe=ci
