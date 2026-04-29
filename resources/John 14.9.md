@@ -1,8 +1,8 @@
 ---
 title: Two Different Gods?
-book_id: HEB
-chapter: 1
-verse: 3
+book_id: JHN
+chapter: 14
+verse: 9
 resource_type:
   - video
 video_url: https://vimeo.com/1187438308?share=copy&fl=sv&fe=ci

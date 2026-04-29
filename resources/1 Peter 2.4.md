@@ -1,8 +1,8 @@
 ---
 title: The New Jesus People
-book_id: ACT
+book_id: 1PE
 chapter: 2
-verse: 42
+verse: 4
 resource_type:
   - video
 video_url: https://vimeo.com/1187507418?share=copy&fl=sv&fe=ci

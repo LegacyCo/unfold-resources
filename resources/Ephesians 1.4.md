@@ -1,7 +1,7 @@
 ---
 title: Loved Before the Foundation of the World
-book_id: ROM
-chapter: 2
+book_id: EPH
+chapter: 1
 verse: 4
 resource_type:
   - video

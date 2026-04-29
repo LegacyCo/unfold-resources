@@ -1,8 +1,8 @@
 ---
 title: Loved Before the Foundation of the World
-book_id: ROM
-chapter: 2
-verse: 4
+book_id: ZEP
+chapter: 3
+verse: 17
 resource_type:
   - video
 video_url: https://vimeo.com/1187509575?share=copy&fl=sv&fe=ci

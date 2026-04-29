@@ -1,8 +1,8 @@
 ---
 title: An Illegal Identity
-book_id: 1CO
+book_id: 1PE
 chapter: 1
-verse: 30
+verse: 4
 resource_type:
   - video
 video_url: https://vimeo.com/1187428036?share=copy&fl=sv&fe=ci

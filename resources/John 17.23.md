@@ -1,8 +1,8 @@
 ---
 title: Loved Before the Foundation of the World
-book_id: ROM
-chapter: 2
-verse: 4
+book_id: JHN
+chapter: 17
+verse: 23
 resource_type:
   - video
 video_url: https://vimeo.com/1187509575?share=copy&fl=sv&fe=ci

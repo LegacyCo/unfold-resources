@@ -1,8 +1,8 @@
 ---
 title: Concrete Soil
-book_id: HEB
-chapter: 4
-verse: 2
+book_id: JAS
+chapter: 2
+verse: 21
 resource_type:
   - video
 video_url: https://vimeo.com/1187446982?share=copy&fl=sv&fe=ci

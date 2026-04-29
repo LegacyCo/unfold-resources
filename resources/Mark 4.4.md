@@ -1,8 +1,8 @@
 ---
 title: Concrete Soil
-book_id: HEB
+book_id: MRK
 chapter: 4
-verse: 2
+verse: 4
 resource_type:
   - video
 video_url: https://vimeo.com/1187446982?share=copy&fl=sv&fe=ci

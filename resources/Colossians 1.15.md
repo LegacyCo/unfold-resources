@@ -1,8 +1,8 @@
 ---
 title: Two Different Gods?
-book_id: HEB
+book_id: COL
 chapter: 1
-verse: 3
+verse: 15
 resource_type:
   - video
 video_url: https://vimeo.com/1187438308?share=copy&fl=sv&fe=ci
