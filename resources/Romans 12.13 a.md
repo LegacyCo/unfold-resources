@@ -57,7 +57,7 @@ Paul is calling the church to become the kind of people who notice the stranger,
 Hospitality is not something we extend only when it is convenient. True hospitality is a grace the Lord has shown us; therefore, we become eager to show it to others. As Peter says in 1 Peter 4:9, "Offer hospitality to one another without grumbling."
 
 ## Application
-Don't wait until for things to feel manageable before you practice hospitality. That day will probably never come.
+Don't wait for things to feel manageable before you practice hospitality. That day will probably never come.
 
 Start smaller, but start intentionally.
 
