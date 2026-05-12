@@ -10,17 +10,13 @@ themes:
 is_published: true
 ---
 ## Commentary
-Psalm 1 opens with a description of the blessed man, but it does so by identifying what he refuses.
+The psalmist is describing a life slowly settling for something inferior, and the progression of what the blessed man refuses is important: “walk…stand…sit.”
 
-The progression is deliberate: “walk…stand…sit.”
-
-The psalmist is not describing three different people. He's describing one life slowly settling for something inferior.
-
-It begins with walking in the counsel of the wicked. That's exposure to a way of living that is contrary to the kingdom of God. It's passing through an environment of darkness. Listening without fully embracing. The influence is present, but it still feels external.
+First comes the opportunity to walk in the counsel of the wicked. That's a life that has become exposed to a way of living that is contrary to the kingdom of God. It's passing through an environment of darkness. The influence is present, but the darkness hasn't been embraced.
 
 Then comes standing in the path of sinners. What was once movement slows into lingering. The person is no longer just passing by; they are beginning to consider. This is Eve standing by the tree of knowledge long enough to notice the fruit is actually beautiful to look at (Genesis 3:6).
 
-Finally, sitting in the seat of scoffers. This is no longer exposure or even curiosity. It's identification. What was once resisted is now embraced. The person has taken a seat.
+Finally, sitting in the seat of scoffers. This is no longer exposure or even curiosity. It's identification with another set of morals. A gravitational pull that was once resisted is now embraced. The person has taken a seat.
 
 There's a legal concept sometimes referred to as squatter’s rights. The idea is that if someone occupies a property long enough without being challenged, their unchallenged presence can become a right to remain. They were not invited in. They were not given the deed. But they stayed long enough without being served an eviction notice.
 
