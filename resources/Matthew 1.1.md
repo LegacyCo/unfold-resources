@@ -10,4 +10,12 @@ themes:
 is_published: true
 ---
 ## Commentary
-“The book of the genealogy (or generations) of Jesus Christ.” It's an interesting phrase. It's used twice in the Bible; here at the start of the new covenant, and in Genesis 5, "This is the book of the genealogy of Adam." Matthew is purposefully pointing us back to show that Jesus is the fulfillment all Israel has been waiting for. The *Last* Adam has come to restore all that the *first* Adam lost. When Matthew writes, "This is the book of the generations of Jesus Christ," he is coming out of gate with an incredible declaration, "This is the moment we have all waited for, the Man of redemption has come!"
+When Matthew opens his Gospel with the words, “The book of the genealogy of Jesus Christ,” he is not simply introducing a family record. He is making a declaration. From the first sentence, Matthew is announcing that Israel's story of promise, exile, longing, and expectation has reached its appointed moment. The Man of redemption has come.
+
+The language is intentional. Matthew’s phrase echoes Genesis 5:1: “This is the book of the generations of Adam.” Genesis 5 introduces the lineage of the first Adam, a genealogy marked by death. Again and again the chapter repeats the same phrase: “and he died.” Adam’s line is a line of descent, but it is also a line under the shadow of the fall.
+
+Matthew now takes that same language and places it at the beginning of Jesus’ story. He is showing us that in Christ, God is beginning something new. Jesus does not enter history as merely another son in Adam’s broken line. He comes as the promised Son, the true Israel, the Son of David, the Son of Abraham, and ultimately the Last Adam who will recover what the first Adam lost.
+
+So Matthew’s opening sentence is doing more than giving us ancestry. It is telling us how to read the entire Gospel. The story of Jesus is the story of God answering the ruin of Genesis. The first Adam brought sin, exile, and death into the human story. The Last Adam comes to bring restoration, life, and union.
+
+Matthew is saying, from the very first line: the waiting is over. The promised Man has come.
