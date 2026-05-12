@@ -10,11 +10,11 @@ themes:
 is_published: true
 ---
 ## Commentary
-The psalmist is describing a life slowly settling for something inferior, and the progression of what the blessed man refuses is important: “walk…stand…sit.”
+The psalmist describes a life that progessively settles for something inferior, and the progression of what the blessed man refuses is important: “walk…stand…sit.”
 
-First comes the opportunity to walk in the counsel of the wicked. That's a life that has become exposed to a way of living that is contrary to the kingdom of God. It's passing through an environment of darkness. The influence is present, but the darkness hasn't been embraced.
+First comes the opportunity to walk in the counsel of the wicked. That's a life that has become exposed to a way of living that is contrary to the kingdom of God. It's passing through an environment of darkness. The influence is present, but the darkness still hasn't been embraced.
 
-Then comes standing in the path of sinners. What was once movement slows into lingering. The person is no longer just passing by; they are beginning to consider. This is Eve standing by the tree of knowledge long enough to notice the fruit is actually beautiful to look at (Genesis 3:6).
+Then comes standing in the path of sinners. What was once movement slows to lingering. The person is no longer just passing by; they are beginning to consider. This is Eve standing by the tree of knowledge long enough to notice the fruit is actually beautiful to look at (Genesis 3:6).
 
 Finally, sitting in the seat of scoffers. This is no longer exposure or even curiosity. It's identification with another set of morals. A gravitational pull that was once resisted is now embraced. The person has taken a seat.
 
@@ -24,8 +24,8 @@ Sin works the same way. It doesn't kick the door down and demand a seat. It's a 
 
 This is why the text places emphasis not merely on sin itself, but on the posture toward it. The blessed man is not defined only by the sin he avoids, but by what he refuses to give his attention to.
 
-The progression also helps explain how patterns become established. Sin in isolation is not presented here as the primary issue; rather, it is the gradual tolerance of it. The movement from walking to sitting suggests that what is left unchallenged becomes increasingly normalized.
+The progression also helps explain how patterns become established. Sin in isolation is not presented here as the primary issue; rather, it is the gradual tolerance of it that Psalm 1 is exposing. The movement from walking to sitting suggests that what is left unchallenged becomes increasingly normalized.
 
-In this sense, the psalm is less concerned with a single act and more concerned with a trajectory. The danger is not only in stepping into the sphere of the wicked, but in remaining there long enough for it to shape one’s reality.
+In this sense, the Psalm is less concerned with a single act and more concerned with a trajectory. The danger is not only in stepping into the sphere of the wicked, but in remaining there long enough for it to shape one’s reality.
 
 By contrast, the blessed life is marked by a conscious interruption of that progression. It doesn't begin the walk, doesn't linger in the path, and refuses to take a seat. It resists not only participation, but the slow settling that leads to it.
