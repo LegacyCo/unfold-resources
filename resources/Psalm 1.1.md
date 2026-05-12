@@ -1,8 +1,8 @@
 ---
-title:
-book_id:
-chapter:
-verse:
+title: Walk, Sit, Stand
+book_id: PSA
+chapter: 1
+verse: 1
 resource_type:
   - note
 topics:
