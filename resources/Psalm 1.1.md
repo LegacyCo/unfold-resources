@@ -29,3 +29,16 @@ The progression also helps explain how patterns become established. Sin in isola
 In this sense, the Psalm is less concerned with a single act and more concerned with a trajectory. The danger is not only in stepping into the sphere of the wicked, but in remaining there long enough for it to shape one’s reality.
 
 By contrast, the blessed life is marked by a conscious interruption of that progression. It doesn't begin the walk, doesn't linger in the path, and refuses to take a seat. It resists not only participation, but the slow settling that leads to it.
+
+## Application
+Pay attention to what you have become comfortable with that would have troubled you in a previous season.
+
+Most of us don’t end up seated in the wrong place in one dramatic decision. It happens through small compromises. A thought entertained too long. A second glance. Just one more drink. A habit, a screen, or a place that consistently dulls our hunger for God. A situation we keep explaining away because the consequences haven't become obvious yet.
+
+Psalm 1 is teaching us to interrupt the progression early.
+
+Don’t wait until sin has furnished the room before you confront it. Don’t wait until your conscience has gone quiet before you take action. The blessed life is formed, in part, by the deliberate refusals no one else sees.
+
+Ask yourself: Where have I been giving attention to counsel that is dulling my hunger for God? Where have I started lingering in the world? What areas of compromise have I allowed to remain unchallenged long enough that now feel normal?
+
+The mercy of God is that you do not have to keep sitting where you have settled. You can repent. You can stand up and walk away. You can fix your gaze on God again and let Him plant you beside His streams of living water.
