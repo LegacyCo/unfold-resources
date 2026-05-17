@@ -1,8 +1,8 @@
 ---
 title: When Jesus Can't Be Himself
-book_id: MRK
-chapter: 6
-verse: 3
+book_id: MAT
+chapter: 13
+verse: 55
 resource_type:
   - video
 video_url: https://vimeo.com/1192906465?share=copy&fl=sv&fe=ci

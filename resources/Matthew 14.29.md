@@ -1,8 +1,8 @@
 ---
 title: The Difference in Faith and Trust
-book_id: HEB
-chapter: 11
-verse: 1
+book_id: MAT
+chapter: 14
+verse: 29
 resource_type:
   - video
 video_url: https://vimeo.com/1192912214?share=copy&fl=sv&fe=ci

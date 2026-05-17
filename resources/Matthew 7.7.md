@@ -1,8 +1,8 @@
 ---
 title: Seek the Lord
-book_id: PSA
-chapter: 63
-verse: 1
+book_id: MAT
+chapter: 7
+verse: 7
 resource_type:
   - video
 video_url: https://vimeo.com/1192907252?share=copy&fl=sv&fe=ci

@@ -1,8 +1,8 @@
 ---
 title: A Peculiar People
-book_id: 1PE
-chapter: 2
-verse: 9
+book_id: DEU
+chapter: 7
+verse: 6
 resource_type:
   - video
 video_url: https://vimeo.com/1192911819?share=copy&fl=sv&fe=ci

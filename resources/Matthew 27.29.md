@@ -1,8 +1,8 @@
 ---
 title: The Crown of Thorns
-book_id: GEN
-chapter: 3
-verse: 18
+book_id: MAT
+chapter: 27
+verse: 29
 resource_type:
   - video
 video_url: https://vimeo.com/1192911012?share=copy&fl=sv&fe=ci
@@ -11,3 +11,4 @@ topics:
 themes:
 is_published: true
 ---
+ 

@@ -1,8 +1,8 @@
 ---
 title: The Crown of Thorns
-book_id: GEN
+book_id: GAL
 chapter: 3
-verse: 18
+verse: 13
 resource_type:
   - video
 video_url: https://vimeo.com/1192911012?share=copy&fl=sv&fe=ci
