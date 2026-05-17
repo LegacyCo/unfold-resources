@@ -37,8 +37,6 @@ Most of us don’t end up seated in the wrong place in one dramatic decision. It
 
 Psalm 1 is teaching us to interrupt the progression early.
 
-Don’t wait until sin has furnished the room before you confront it. Don’t wait until your conscience has gone quiet before you take action. The blessed life is formed, in part, by the deliberate refusals no one else sees.
+Don’t wait until sin has furnished the room before you confront it. Don’t wait until your conscience has gone numb before you take action. The blessed life is formed, in part, by the deliberate rejection of a things no one else sees.
 
 Ask yourself: Where have I been giving attention to counsel that is dulling my hunger for God? Where have I started lingering in the world? What areas of compromise have I allowed to remain unchallenged long enough that now feel normal?
-
-The mercy of God is that you do not have to keep sitting where you have settled. You can repent. You can stand up and walk away. You can fix your gaze on God again and let Him plant you beside His streams of living water.
