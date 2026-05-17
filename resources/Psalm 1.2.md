@@ -29,8 +29,4 @@ Here, the movement is inward: delight, meditate, remain. A steady rooting in tru
 Both lives are shaped by what they linger with. One lingers with the counsel of the wicked. The other lingers with the voice of God.
 
 ## Application
-Your life is being shaped by whatever has your attention. If the word of God is going to form you, it can't be limited to a Sunday sermon or a morning reading plan. It has to become the place your mind returns to when it's left unattended.
-
-That's the work of meditation.
-
-You take the word of God with you. You let it interrupt anxious thoughts. You let it confront temptation. You let it reshape desire. You let it become the voice beneath all the other voices. Allow the word of God to become your delight.
+Your life is being shaped by whatever has your attention. If the word of God is going to form you, it can't be limited to a Sunday sermon or a morning reading plan. It has to become the place your mind returns to when it's left unattended. That's the work of meditating on the Word of God. Let it become the voice above all the other voices. 
