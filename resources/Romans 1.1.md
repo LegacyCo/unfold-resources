@@ -20,7 +20,7 @@ This is the power of the gospel. It lays claim to the man and reorders his ambit
 
 And notice whose gospel it was: “the gospel of God.”
 
-It wasn't Paul's gospel. It belonged to God. It from from Him, revealed Him, and returned all glory to Him. Paul was simply the servant who had been taken captive by the gospel of grace (see Galatians 1:15-16 and 1 Corinthians 9:16).
+It wasn't Paul's gospel. It belonged to God. It was from Him, revealed Him, and returned all glory to Him. Paul was simply the servant who had been taken captive by the gospel of grace (see Galatians 1:15-16 and 1 Corinthians 9:16).
 
 To be separated to the gospel of God means grace has become the governing announcement over your life. You belong to the God who saves sinners, raises the dead, keeps His promises, and gives righteousness as a gift through Jesus Christ.
 
