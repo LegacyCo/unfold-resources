@@ -14,7 +14,7 @@ The blessed man is not merely avoiding bad influence. He is actively anchored in
 
 For the blessed man, the law of the Lord is what fills that space. 
 
-The commands of God have captured the affections of the Psalmist. There is a reorientation of desire where what God says is not burdensome, but beautiful. 
+The commands of God have captured the affections of the psalmist. There is a reorientation of desire where what God says is not burdensome, but beautiful. 
 
 And it is the delight of the blessed man to meditate on the word of the Lord.
 
@@ -29,4 +29,4 @@ Here, the movement is inward: delight, meditate, remain. A steady rooting in tru
 Both lives are shaped by what they linger with. One lingers with the counsel of the wicked. The other lingers with the voice of God.
 
 ## Application
-Your life is being shaped by whatever has your attention. If the word of God is going to form you, it can't be limited to a Sunday sermon or a morning reading plan. It has to become the place your mind returns to when it's left unattended. That's the work of meditating on the Word of God. Let it become the voice above all the other voices. 
+Your life is being shaped by whatever has your attention. If the Word of God is going to form you, it can't be limited to a Sunday sermon or a morning reading plan. It has to become the place your mind returns to when it's left unattended. That's the work of meditating on the Word of God. Let it become the voice above all the other voices. 
