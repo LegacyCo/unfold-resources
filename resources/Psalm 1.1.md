@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-The psalmist describes a life that progessively settles for something inferior, and the progression of what the blessed man refuses is important: “walk…stand…sit.”
+The psalmist describes a life that progressively settles for something inferior, and the progression of what the blessed man refuses is important: “walk…stand…sit.”
 
 First comes the opportunity to walk in the counsel of the wicked. That's a life that has become exposed to a way of living that is contrary to the kingdom of God. It's passing through an environment of darkness. The influence is present, but the darkness still hasn't been embraced.
 
@@ -26,7 +26,7 @@ This is why the text places emphasis not merely on sin itself, but on the postur
 
 The progression also helps explain how patterns become established. Sin in isolation is not presented here as the primary issue; rather, it is the gradual tolerance of it that Psalm 1 is exposing. The movement from walking to sitting suggests that what is left unchallenged becomes increasingly normalized.
 
-In this sense, the Psalm is less concerned with a single act and more concerned with a trajectory. The danger is not only in stepping into the sphere of the wicked, but in remaining there long enough for it to shape one’s reality.
+In this sense, the psalm is less concerned with a single act and more concerned with a trajectory. The danger is not only in stepping into the sphere of the wicked, but in remaining there long enough for it to shape one’s reality.
 
 By contrast, the blessed life is marked by a conscious interruption of that progression. It doesn't begin the walk, doesn't linger in the path, and refuses to take a seat. It resists not only participation, but the slow settling that leads to it.
 
@@ -37,6 +37,6 @@ Most of us don’t end up seated in the wrong place in one dramatic decision. It
 
 Psalm 1 is teaching us to interrupt the progression early.
 
-Don’t wait until sin has furnished the room before you confront it. Don’t wait until your conscience has gone numb before you take action. The blessed life is formed, in part, by the deliberate rejection of a things no one else sees.
+Don’t wait until sin has furnished the room before you confront it. Don’t wait until your conscience has gone numb before you take action. The blessed life is formed, in part, by the deliberate rejection of things no one else sees.
 
 Ask yourself: Where have I been giving attention to counsel that is dulling my hunger for God? Where have I started lingering in the world? What areas of compromise have I allowed to remain unchallenged long enough that now feel normal?
