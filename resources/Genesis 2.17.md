@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-Using new testament language, we could say that Adam and Eve were not ready for “solid food”, they were still on a diet of milk, so to speak. God was going to teach them everything, but it was going to be in His time, done His way. 
+Using New Testament language, we could say that Adam and Eve were not ready for “solid food”, they were still on a diet of milk, so to speak. God was going to teach them everything, but it was going to be in His time, done His way. 
 
 Hebrews 5:14 says, 
 
