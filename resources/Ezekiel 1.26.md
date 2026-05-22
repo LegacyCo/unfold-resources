@@ -24,7 +24,7 @@ In other words, when God makes Himself visible, understandable, and knowable, He
 
 Ezekiel does not yet have the language of the incarnation. He is not standing in Bethlehem or looking at the risen Christ. But his vision is moving in that direction. The glory above the throne is a Person. And that glory would one day take on flesh.
 
-This is a consistent them in Scripture. The appearance of a man on the throne in Ezekiel becomes the Son of Man standing before the Ancient of Days in Daniel 7. It becomes the Word made flesh in John 1. It becomes Jesus, crucified and risen, saying, “All authority in heaven and on earth has been given to Me” (Matthew 28:18). It becomes Stephen, full of the Holy Spirit, seeing Jesus standing at the right hand of God (Acts 7:55–56). It becomes John in Revelation seeing the throne of God and the Lamb.
+This is a consistent theme in Scripture. The appearance of a man on the throne in Ezekiel becomes the Son of Man standing before the Ancient of Days in Daniel 7. It becomes the Word made flesh in John 1. It becomes Jesus, crucified and risen, saying, “All authority in heaven and on earth has been given to Me” (Matthew 28:18). It becomes Stephen, full of the Holy Spirit, seeing Jesus standing at the right hand of God (Acts 7:55–56). It becomes John in Revelation seeing the throne of God and the Lamb.
 
 Ezekiel 1:26 is a window into the way God reveals Himself.
 
@@ -35,7 +35,7 @@ In Jesus, we see the fullness of what Ezekiel only saw in a glimpse. But we can 
 
 That is the proper response to the glory of God revealed in the Son.
 
-Jesus is not simply another prophet or teacher to learn from. He is not a helper or a doctrine to understand. He is the image of the invisible God, the radiance of God’s glory, and the One seated in authority above all things.
+Jesus is not simply another prophet or teacher to learn from. He is not just a helper or a doctrine to understand. He is the image of the invisible God, the radiance of God’s glory, and the One seated in authority above all things.
 
 If Ezekiel fell before the appearance of the *likeness* of His glory, how much more should we live in awe before the One in whom that glory has been fully revealed?
 
