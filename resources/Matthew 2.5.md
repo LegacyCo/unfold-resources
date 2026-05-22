@@ -13,5 +13,3 @@ is_published: true
 Matthew records a second fulfilled prophecy to show us that Jesus is the Messiah—not just *how* He was born, but *where*.
 
 Bethlehem means “house of bread.” How fitting that the Bread of God, who stepped down from heaven to give life to the world, was born there (see John 6:33ff). 
-
-## Application
