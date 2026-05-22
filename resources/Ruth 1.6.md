@@ -12,9 +12,9 @@ is_published: true
 ## Commentary
 In Scripture, divine visitation is always purposeful. God doesn't just casually drop by. When God visits, He comes to act. He comes in remembrance of His covenant. He comes to intervene where human strength has run out.
 
-Naomi had left Bethlehem (which literally means "house of bread) because there was no bread. Famine had emptied the place that was supposed to speak of provision. But now the rumor reaches Moab: God has visited His people. Bread has returned. The land that seemed abandoned is being touched again by the mercy of God.
+Naomi had left Bethlehem (which literally means "house of bread") because there was no bread. Famine had emptied the place that was supposed to speak of provision. But now the rumor reaches Moab: God has visited His people. Bread has returned. The land that seemed abandoned is being touched again by the mercy of God.
 
-God’s visitation had a tangible effect. Hungry people were fed. Empty fields began to bear fruit again. The goodness of God became tangible enough to be heard about in another country.
+God’s visitation had a tangible effect. Hungry people were fed. Empty fields began to bear fruit again. The goodness of God became visible enough to be heard about in another country.
 
 So Naomi returns. She begins the journey home because she hears that God is moving among His people again.
 
