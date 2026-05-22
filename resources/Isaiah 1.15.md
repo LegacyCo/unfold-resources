@@ -24,11 +24,11 @@ This same principle shows up throughout Scripture.
 
 Peter tells husbands to live with their wives in an understanding way and to honor them, “that your prayers may not be hindered” (1 Peter 3:7). That means a man cannot dishonor his wife and then assume God will ignore it when he prays.
 
-Psalm 66:18 says, “If I regard iniquity in my heart, the Lord will not hear.” The issue is not that a person struggling to get victory over temptation and sin cannot pray. The issue is unrepentant sin not being brought into the light of forgiveness. 
+Psalm 66:18 says, “If I regard iniquity in my heart, the Lord will not hear.” The issue is unrepentant sin that refuses to be brought into the light of forgiveness.
 
 Jesus says something similar in Mark 11:25: “Whenever you stand praying, forgive, if you have anything against anyone.” Unforgiveness has a way of standing in the room with us when we pray. We may try to speak past it, but God does not pretend it is not there.
 
-James also says, “You ask and do not receive, because you ask wrongly, to spend it on your passions” (James 4:3). There are prayers that are hindered not only by obvious sin, but by desire that are out of alignment. The mouth may be saying, “God, help me,” while the heart is saying, “God, serve me.”
+James also says, “You ask and do not receive, because you ask wrongly, to spend it on your passions” (James 4:3). There are prayers that are hindered not only by obvious sin, but by desires that are out of alignment. The mouth may be saying, “God, help me,” while the heart is saying, “God, serve me.”
 
 So yes, there are things that hinder prayer.
 
@@ -36,6 +36,6 @@ That does not mean God only hears perfect people. If that were true, no one woul
 
 God hears the cry of repentance. Psalm 25:8 says He "shows sinners the way." He draws near to the broken and contrite. But He does not play religious games with people who want Him to bless the very life they refuse to surrender.
 
-For followers of Christ, this should not create fear that God is looking for reasons to reject us. It should create a holy disruption to lifestyles that are casual towards sin. We come to the Father through Jesus. Our access is secured by His blood. And the same grace that brings us near also demands we draw near in humility and honesty. Prayer is not a place where we cover our rebellion with spiritual language. Prayer is where we boldly bring the truth before God (Hebrews 4:16).
+For followers of Christ, this should not create fear that God is looking for reasons to reject us. It should create a holy disruption to lifestyles that are casual toward sin. We come to the Father through Jesus. Our access is secured by His blood. And the same grace that brings us near also demands we draw near in humility and honesty. Prayer is not a place where we cover our rebellion with spiritual language. Prayer is where we boldly bring the truth before God (Hebrews 4:16).
 
 The invitation of this passage is repentance. “Wash yourselves; make yourselves clean; remove the evil of your deeds from before My eyes; cease to do evil, learn to do good...though your sins are like scarlet, they shall be as white as snow...if you are willing and obedient, you will eat the good of the land.”
