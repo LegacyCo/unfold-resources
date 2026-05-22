@@ -1,8 +1,8 @@
 ---
 title: Ceaseless Radiance
 book_id: PSA
-chapter: 121
-verse: 1
+chapter: 119
+verse: 37
 resource_type:
   - video
 video_url: https://vimeo.com/1194865209?share=copy&fl=sv&fe=ci

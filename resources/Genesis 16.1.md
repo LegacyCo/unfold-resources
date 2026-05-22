@@ -1,8 +1,8 @@
 ---
 title: Delay
-book_id: 1SA
-chapter: 13
-verse: 11
+book_id: GEN
+chapter: 16
+verse: 1
 resource_type:
   - video
 video_url: https://vimeo.com/1194866313?share=copy&fl=sv&fe=ci

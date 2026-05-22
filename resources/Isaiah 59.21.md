@@ -1,8 +1,8 @@
 ---
 title: Multigenerational Faithfulness
-book_id: MAT
-chapter: 1
-verse: 2
+book_id: ISA
+chapter: 59
+verse: 21
 resource_type:
   - video
 video_url: https://vimeo.com/1194864012?share=copy&fl=sv&fe=ci

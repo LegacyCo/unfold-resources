@@ -1,8 +1,8 @@
 ---
 title: He Came As A Man
-book_id: ISA
-chapter: 59
-verse: 26
+book_id: HEB
+chapter: 2
+verse: 14
 resource_type:
   - video
 video_url: https://vimeo.com/1194862871?share=copy&fl=sv&fe=ci
@@ -11,4 +11,3 @@ topics:
 themes:
 is_published: true
 ---
- 
