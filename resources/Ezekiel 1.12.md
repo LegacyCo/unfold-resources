@@ -16,16 +16,16 @@ Ezekiel is trying to describe something almost impossible to describe: the movem
 
 Nothing needed to turn because they were not trying to find their own way.
 
-Ezekiel is seeing the glory of God in motion. God is not confined to Jerusalem, the temple, or the land of Israel. Ezekiel is in exile by the Chebar canal, and yet the glory of God appears there. The Lord is not trapped by geography or human circumstance. His glory moves, and everything connected to Him moves in perfect agreement with His Spirit.
+Ezekiel is seeing the glory of God in motion. God is not confined to Jerusalem, the temple, or the land of Israel. Ezekiel is in exile by the Chebar Canal, and yet the glory of God appears there. The Lord is not trapped by geography or human circumstance. His glory moves, and everything connected to Him moves in perfect agreement with His Spirit.
 
 That is the significance of the creatures going straight forward. Their movement reflects submission, not independence.
 
 ## Application
-Though we should be careful not make this passage only about human decision-making, there is an application here for us. Much of our movement is shaped by reaction. We change direction because of fear, pressure, opportunity, discomfort, or the opinions of others. We may use spiritual language, but often we are still trying to find our own way.
+Though we should be careful not to make this passage only about human decision-making, there is an application here for us. Much of our movement is shaped by reaction. We change direction because of fear, pressure, opportunity, discomfort, or the opinions of others. We may use spiritual language, but often we are still trying to find our own way.
 
-The living creatures show us a different way. They move as ones directed by the Spirit.
+The living creatures show us a different way. They move as those directed by the Spirit.
 
-The Christian life is meant to be lived in the posture of surrender. Romans 8 says those who are led by the Spirit of God are sons of God. 
+The Christian life is meant to be lived in the posture of surrender. Romans 8:14 says those who are led by the Spirit of God are sons of God. 
 
 To be led by the Spirit doesn't mean we become robots. It means we refuse to be governed by our desires or circumstances. We learn to move in response to God rather than constantly turning toward whatever seems most urgent or attractive.
 
