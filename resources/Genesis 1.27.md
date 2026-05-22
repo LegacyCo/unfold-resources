@@ -16,9 +16,9 @@ No.
 
 John 4:24 says that "God is spirit." So to be created in His image means that we are created as spiritual beings.
 
-Now, the thing about spirit is there is no boundary to define spirit. Oftentimes, the Bible translates the Hebrew word for spirit as wind or breath. Just as the wind or breath has no shape or boundary, so too with spirit.
+Now, the thing about spirit is that spirit is not defined by physical boundaries. Often, the Bible translates the Hebrew word for spirit as wind or breath. Just as the wind or breath has no shape or boundary, so too with spirit.
 
-Let's take this a step further; when I exhale my breathe into the air around me, it is impossible to tell what is my breathe and what is the atmosphere or the air that was already there. They have become one. That’s the nature of air, wind…and spirit.
+Let's take this a step further: when I exhale my breath into the air around me, it is impossible to tell what is my breath and what is the atmosphere or the air that was already there. They have become one. That’s the nature of air, wind…and spirit.
 
 When God says that we are made in His image and likeness, it means that He created us with the capacity to become one with Him, for our spirit to be joined with His Spirit. This doesn't mean that we are gods...but it does mean that God desires us to be just like Him; so much so, that man, created in God’s image, shows the rest of creation what God is like.
 
@@ -38,7 +38,7 @@ The coin bore the image and inscription of Caesar. Jesus says,
 
 In the same way that Caesar's coin had his own image engraved on it, so too, we have God's image engraved in us. We belong to Him because we bear His image. As Ecclesiastes 3:11 says,
 
-“Eternity has been placed on the heart of every man.” 
+“Eternity has been placed in the heart of every man.” 
 
 No other part of creation can make such an astounding claim. When God determined to make man, He determined to make something of Himself in man. 
 
