@@ -34,7 +34,7 @@ Alternatively, if Israel did not serve the Lord, He will,
 
 The land is good, but when the people who possess the land are no longer good, the land will reflect the barrenness of the people rather than the life of the Creator.
 
-We find another example of this in Jeremiah. The prophet describes Jerusalem in the midst of God's judgement against His people; this is Jeremiah 23:10,
+We find another example of this in Jeremiah. The prophet describes Jerusalem in the midst of God's judgment against His people; this is Jeremiah 23:10,
 	
 “My heart is broken within me...the land is full of adulterers; for because of a curse the land mourns...and the pleasant places of the wilderness are dried up.” 
 
@@ -46,13 +46,13 @@ As long as Adam was walking with God, the ground that he occupied was blessed. B
 
 "Then God said to Adam, 'Because you have listened to the voice of your wife, and have eaten from the tree of which I commanded you not to eat: cursed is the ground for your sake; in toil you shall eat of it all the days of your life. Both thorns and thistles it shall bring forth for you…By the sweat of your brow you shall eat bread till you return to the ground.'"
 
-It wasn't just man that suffered the consequence of his sin, it was his land that also became separated from the life of God. The curse of man touched the land that he occupied.
+It wasn't only man that suffered the consequence of his sin, it was his land that also became separated from the life of God. The curse of man touched the land that he occupied.
 
 God intends for the land to reflect the quality of people who are planted there; if they are blessed, so is the land...if they are separated from God, the land reflects that.
 
-Now, there are God-less, wicked people who live in beautiful places. What do we do with that? I don't know...other than acknowledging that God is extremely gracious and the consequences of sin don't always come in real-time. So it's not as black and white as saying “the Middle East is barren desert because it’s occupied by Islam”...because there are other Muslim nations that are lush and vibrant. I get that. 
+Now, there are god-less, wicked people who live in beautiful places. What do we do with that? I don't know...other than acknowledging that God is extremely gracious and the consequences of sin don't always come in real-time. So it's not as black and white as saying “the Middle East is barren desert because it’s occupied by Islam”...because there are other Muslim nations that are lush and vibrant. I get that. 
 
-But the principle of the kingdom is this: creation is groaning for sons and daughters of God to come take possession of territory and transform what is “not garden" into garden (Romans 8:19). Our land is crying out for righteousness, and God hears the cry of the land. God has covenanted with the land, and He honors His covenants. For example; the duration of Israel’s exile to Babylon was directly related to them not stewarding their land. God had promised the land a Sabbath rest every 7 years. Israel may have been unfaithful in keeping its covenant with the land, but God is faithful to keep His covenants. So when Israel is exiled to Babylon, they are kept in bondage 1 year for each of the Sabbath years that they stole from the land. This is 2 Chronicles 36:20-21,
+But the principle of the kingdom is this: creation is groaning for sons and daughters of God to come take possession of territory and transform what is “not garden" into garden (Romans 8:19). Our land is crying out for righteousness, and God hears the cry of the land. God has covenanted with the land, and He honors His covenants. For example, the duration of Israel’s exile to Babylon was directly related to them not stewarding their land. God had promised the land a Sabbath rest every seven years. Israel may have been unfaithful in keeping its covenant with the land, but God is faithful to keep His covenants. So when Israel is exiled to Babylon, they are kept in bondage 1 year for each of the Sabbath years that they stole from the land. This is 2 Chronicles 36:20-21,
 
 "And those who escaped from the sword he carried away to Babylon…until the land (of Israel) had enjoyed her Sabbaths. As long as she lay desolate she kept Sabbath, to fulfill seventy years."
 
@@ -64,11 +64,11 @@ Paul says in Romans 8:21 that when the sons and daughters of God fill the land, 
 
 “Surely His salvation is near to those who fear Him, so that glory may dwell in the land” (Psalm 85:9).
 
-The *SECOND* thing necessary to point out here is the nations will not only know who God is by what they see in His people, but also by what they see in the land that His people possess. This is Ezekiel 36:33-36,
+The *second* thing necessary to point out here is that the nations will not only know who God is by what they see in His people, but also by what they see in the land that His people possess. This is Ezekiel 36:33-36,
 
 "Thus says the Lord GOD: 'On the day that I cleanse you from all your sin...The desolate land shall be cultivated instead of lying desolate. And all those who pass by will say, ‘This land that was desolate has become like the garden of Eden; and the wasted, desolate, and ruined cities are now fortified and inhabited.’ Then the nations which are left all around you shall know that I, the LORD, have rebuilt the ruined places and planted what was desolate.”
 
-When desolate places come alive with new life because righteous image bearers are planted in that land, then the nations see a full picture of a God they have never known before. God’s people testify of Him...and so does the land. Evangelizing the nations is so much more than sharing the gospel and passing out Bibles. God has given His people an assignment to steward their garden and transform whatever is "not garden" into garden…and how well we do that has a direct effect on the Great Commission.
+When desolate places come alive with new life because righteous image-bearers are planted in that land, then the nations see a full picture of a God they have never known before. God’s people testify of Him...and so does the land. Evangelizing the nations is so much more than sharing the gospel and passing out Bibles. God has given His people an assignment to steward their garden and transform whatever is "not garden" into garden…and how well we do that has a direct effect on the Great Commission.
 
 
 ## Application
@@ -78,4 +78,4 @@ God wants to marry His people to a land...He wants to sow us in the earth. And b
 
 Who is the land in covenant with? The people who possess the land. 
 
-Back to where we started in Genesis 2. When God created the land it is no accident that the land was waiting for an image bearer to take possession of it before it came to life. Remember, life in the kingdom can only come when there is first covenant. In fact, land all over the earth is still waiting for image-bearers to come take possession, and become planted there, so it can come to life again and bear witness that righteousness is planted there, the blessing has come, and the curse of Adam has been broken by the blood of the Last Adam.
+Back to where we started in Genesis 2. When God created the land it is no accident that the land was waiting for an image bearer to take possession of it before it came to life. Remember, life in the kingdom can only come when there is first covenant. In fact, land all over the earth is still waiting for image-bearers to come and take possession, and become planted there, so it can come to life again and bear witness that righteousness is planted there, the blessing has come, and the curse of Adam has been broken by the blood of the Last Adam.
