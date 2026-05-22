@@ -12,7 +12,7 @@ is_published: true
 ## Commentary
 Psalm 77 is written in the midst of distress. The psalmist is crying out to God. His soul refuses to be comforted. He asks hard questions about whether God’s mercy has ended and whether His promises have failed.
 
-Then, in verse 10, there is a shift. The circumstances don't appear to have changed. What changes is the psalmist’s focus. He says, “I will remember the years of the right hand of the Most High.”
+Then, in verse 10, there is a shift. The circumstance doesn't appear to have changed. What changes is the psalmist’s focus. He says, “I will remember the years of the right hand of the Most High.”
 
 Remembering is an act of spiritual resistance. It's the deliberate decision to bring God’s past faithfulness into present pain.
 
