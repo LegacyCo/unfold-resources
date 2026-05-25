@@ -20,5 +20,5 @@ Even the wanderings of Israel in the wilderness can now be seen through the lens
 
 Marriage is now seen as a witness of "that day." It testifies of the bridal covenant covering God's people. It is not the glory (the glory is the radiance of the flame by night and the cloud by day), but it covers the glory, seals the glory, wraps around and envelops the glory
 
-## Application
+## Cross Reference
 See also Exodus 13:21-22, Numbers 9:15-16, Exodus 24:16
