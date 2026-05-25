@@ -1,4 +1,4 @@
----
+ ---
 title: Tell the Coming Generation
 book_id: PSA
 chapter: 78
