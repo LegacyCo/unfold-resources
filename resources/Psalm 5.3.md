@@ -25,5 +25,3 @@ So Psalm 5:3 gives us a much fuller picture of what intentional prayer looks lik
 David arranges his prayer before the Lord, and then he watches for the Lord. He sets the matter before God, and then he lives with his eyes open for the faithfulness of God to break in.
 
 This is the movement of biblical prayer. Prayer is not only the place where we speak. It's the place where we intentionally bring our burden before God and then posture ourselves to look for His answer.
-
-## Application
