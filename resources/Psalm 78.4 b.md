@@ -1,0 +1,13 @@
+---
+title: Multigenerational Faithfulness
+book_id: PSA
+chapter: 78
+verse: 4
+resource_type:
+  - video
+video_url: https://vimeo.com/1194864012?share=copy&fl=sv&fe=ci
+video_duration: 1:47
+topics:
+themes:
+is_published: true
+---
