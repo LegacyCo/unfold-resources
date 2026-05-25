@@ -1,5 +1,5 @@
 ---
-title:
+title: A Look at Adam
 book_id: GEN
 chapter: 2
 verse: 19
