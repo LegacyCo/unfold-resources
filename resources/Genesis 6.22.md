@@ -39,3 +39,48 @@ Faith does not need forty-seven confirmations when God has already spoken clearl
 Noah did all that God commanded him.
 
 Praise God he did.
+
+## Application
+God does not call the qualified. He qualifies the called.
+
+What possibly qualified Noah to build a massive ark? Did he have the necessary experience? Was he trained for this? Had he done anything like this before?
+
+There is no indication that Noah knew what he was doing when Yahweh spoke to him. And yet, Noah did all that God commanded him.
+
+That pattern runs all through Scripture.
+
+Moses had no experience building a tabernacle before God gave him the pattern on the mountain. Gideon had no experience leading an army before God called him a mighty man of valor. David was the least obvious choice in his family to become king. Rahab was a Gentile prostitute in Jericho, and yet she was written into the lineage of Israel’s Messiah.
+
+God is not looking for the impressive.
+
+He is not searching the earth for the strongest, the most gifted, the most experienced, or the most publicly qualified. He is looking for the yielded.
+
+Second Chronicles 16:9 says, “The eyes of the LORD run to and fro throughout the whole earth, to give strong support to those whose heart is blameless toward Him.”
+
+That is the qualifier.
+
+A heart fully turned toward God.
+
+Noah was not chosen because he knew how to build a boat. Noah caught the gaze of Yahweh because he walked with God. He was yielded. He was available. He was obedient. He was not perfect, but when God shared His heart with Noah, Noah did not flinch.
+
+Are you unqualified for what God has called you to do? Are you afraid? Do you feel weak? Good. Weakness has never disqualified anyone from being used by God. In fact, weakness is often the very place where God chooses to display His strength.
+
+Paul says it this way: “For consider your calling, brothers: not many of you were wise according to worldly standards, not many were powerful, not many were of noble birth. But God chose what is foolish in the world to shame the wise… God chose what is weak in the world to shame the strong… so that no human being might boast in the presence of God” (1 Corinthians 1:26–29).
+
+That is the logic of the Kingdom.
+
+The world system rewards what people already possess: talent, status, charisma, influence, beauty, strength, education, wealth. And if you do not have what the world values, the world often overlooks you.
+
+But the Kingdom calls the weak.
+
+The Kingdom calls the foolish.
+
+The Kingdom calls the insignificant.
+
+The Kingdom calls the ones who know they cannot do it unless God strengthens them.
+
+God is not looking for those who get it right every time. Just look at David. He is looking for the ones willing to risk everything because He has spoken.
+
+So don't despise your weakness. The right question is not, “Am I qualified?” The better question is, “Am I yielded?”
+
+Because when the heart is fully His, God knows how to strengthen the hands for whatever He commands.
