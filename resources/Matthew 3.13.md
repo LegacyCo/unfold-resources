@@ -16,7 +16,7 @@ John came to "bear witness to the Light," to declare "this is He." His message w
 
 When the priests and the Levites asked John "Why do you baptize with water?" his answer was "there stands among you *One whom you do not know*" (John 1:25-26). The implication is that the baptism of water will reveal the One who is bringing the kingdom of God, and Himself has no need of repentance. 
 
-The purpose of the baptism was to reveal the One sent by the Father; "*I did not know Him*, but that He should be revealed to Israel, I came baptizing with water" (John 1:31). "I did not know Him, but He who sent me to baptize with water said to me, 'Upon whom you see the Spirit descending and remaining, this is He who baptizes with the Holy Spirit'" (John 1:33). 
+"*I did not know Him*, but that He should be revealed to Israel, I came baptizing with water...Upon whom you see the Spirit descending and remaining, this is He who baptizes with the Holy Spirit'" (John 1:31, 33). 
 
 It's as if John's instructions were to baptize all of Israel to "weed out" the ones in need of repentance until there was One who didn't actually require this baptism of repentance. And on that One would rest the dove and the mantle of Messiah...so keep baptizing until you see Him. 
 
