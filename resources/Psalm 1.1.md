@@ -1,5 +1,5 @@
 ---
-title: Walk, Sit, Stand
+title: Walk, Stand, Sit
 book_id: PSA
 chapter: 1
 verse: 1
