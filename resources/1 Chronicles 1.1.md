@@ -27,6 +27,6 @@ A chapter like this teaches us to read slowly, even when the text feels repetiti
 ## Application
 There are moments when the "chapter" you are living does not make sense. But 1 Chronicles 1 reminds us that God is never only working in the moment we can see. He is carrying purposes across generations.
 
-Your life is not floating loose from the story of God. You have been born into a world God made, placed in a generation God sees, and invited into a redemptive story that began long before you and will continue long after you.
+Your life is not floating loose from the story of God. You have been born into a world God made, placed in a generation God sees, and invited into a redemptive story that began long before you — and will continue long after you.
 
 Genealogies remind us that God remembers names.
