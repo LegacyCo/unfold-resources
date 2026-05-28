@@ -16,9 +16,9 @@ Their responsibility is to care for the tabernacle, carry it, set it up, take it
 
 That statement assumes something important about the tabernacle. It is not a symbolic object in the center of camp. It is the place where the holy God of consuming fire dwells among His people. Because of that, Israel’s nearness to the tabernacle has to be ordered according to God’s design.
 
-The Levites function as guardians of that order — kind of boundary of mercy. They guard the tabernacle so that Israel does not approach God carelessly and bring judgment on themselves. Their service is not about keeping people away from God. It is about preserving the right kind of access so the presence of God *can* remain among them without consuming them. The Levites maintained the right relationship between a holy God and His covenant people.
+The Levites function as guardians of that order — a kind of boundary of mercy. They guard the tabernacle so that Israel does not approach God carelessly and bring judgment on themselves. Their service is not about keeping people away from God. It is about preserving the right kind of access so the presence of God *can* remain among them without consuming them. The Levites maintained the right relationship between a holy God and His covenant people.
 
-God wanted to dwell in the middle of Israel. The tabernacle proves that. But He would not allow His people to treat His presence as common.
+God wanted to dwell with Israel. The tabernacle proves that. But He would not allow His people to treat His presence as common.
 
 The Levites are a reminder that access to God is always a gift, but it is not something to be taken lightly. Israel does not decide how the presence of God is handled. God does. 
 
