@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-This verse is one of the oddest statements in the psalm.
+On the surfce, this verse is one of the oddest statements in the psalm.
 
 The Hebrew word translated “wrath” is *ḥēmâ*, which can mean rage, fury, heat, or burning anger. It describes the violent intensity of human rebellion against God and His people.
 
