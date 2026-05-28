@@ -12,7 +12,7 @@ is_published: true
 ## Commentary
 Joseph’s plan to “send Mary away” means he intended to divorce her, even though they had not yet come together as husband and wife.
 
-That sounds strange to us because we usually think of engagement as something that can simply be broken off. But in first-century Jewish culture, betrothal was legally binding. Matthew even calls Joseph Mary’s husband and Mary his wife, even though the marriage had not yet been consummated (Matthew 1:18–20). To end a betrothal required a formal act of divorce. 
+That sounds strange to us because we usually think of engagement as something that can simply be broken off. But in first-century Jewish culture, betrothal was legally binding. Matthew even calls Joseph Mary’s husband and Mary his wife, even though the marriage had not yet been consummated [Matthew 1:19]. To end a betrothal required a formal act of divorce. 
 
 So Joseph had a few possible paths.
 
