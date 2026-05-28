@@ -21,14 +21,14 @@ Of course, this was not the way for humanity to regain the authority that Adam l
 
 Which leads us to an important question. Have you ever wondered why Jesus wrapped Himself in flesh and came to us as a man? Like Paul says in Romans 8:3, God sent His Son in the “likeness of sinful flesh.” Why was this the plan? Jesus could’ve defeated death and sin by coming in divine glory and heavenly majesty, but instead He emptied Himself of those things and came to us wrapped in flesh. Why did He do this? 
 
-The short answer is: He had to. God established something in the garden that He was not going to violate. In creation, God gave authority to flesh and blood. It was flesh and blood that surrendered that authority to Satan. And flesh and blood was required to get that authority back. For God to defeat Satan and take back authority in full divinity and glory would be to violate the created order that He established in the garden. God doesn’t just make the rules, He plays by the rules. Jesus came as a son of Adam because only a son of Adam could take back the authority that was lost by Adam.
+The short answer: He had to. God established something in the garden that He was not going to violate. In creation, God gave authority to flesh and blood. It was flesh and blood that surrendered that authority to Satan. And flesh and blood was required to get that authority back. For God to defeat Satan and take back authority in full divinity and glory would be to violate the created order that He established in the garden. God doesn’t just make the rules, He plays by the rules. Jesus came as a son of Adam because only a son of Adam could take back the authority that was lost by Adam.
 
 And standing in the victory of the cross and resurrection glory, Jesus declares to His disciples in Matthew 28:18, "All authority has been given to Me in heaven and on earth."
 
-What was given in creation—and lost in the garden—was restored at the cross. Jesus took back everything that Adam lost. And now, He commissions us to go into the world and implement the victory of the cross.
+What was given in creation — and lost in the garden — was restored at the cross. Jesus took back everything that Adam lost. And now, He commissions us to go into the world and implement the victory of the cross.
 
 ## Word Study
-The Hebrew word that we translate “man" is adam. So Adam was not only the first man’s name, adam is also the descriptive Hebrew term for what he is. This becomes interesting when we begin seeing passages describing Jesus as the Son of Man.
+The Hebrew word that we translate “man" is adam. So Adam was not only the first man’s name, adam is also the descriptive Hebrew term for what he _is_. This becomes interesting when we begin seeing passages describing Jesus as the Son of Man.
 
 This will also become important when we start reading about the land in Genesis 2:5.
 
