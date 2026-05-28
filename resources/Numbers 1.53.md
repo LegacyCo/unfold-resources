@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-Numbers 1 is mostly a census chapter. The tribes are being numbered for war, and the men twenty years old and above are counted according to their armies. But the Levites are treated differently. They are not counted among the fighting men because their assignment is not military. Their assignment is the tabernacle.
+Numbers 1 is mostly a census chapter. The tribes are being numbered for war, and the men twenty years old and above are counted according to their armies. But the Levites are treated differently. They are not counted among the fighting men because their assignment is not the military. Their assignment is the tabernacle.
 
 Their responsibility is to care for the tabernacle, carry it, set it up, take it down, and camp around it. Their lives are ordered around the presence of God, “that there may be no wrath on the congregation of the children of Israel.”
 
