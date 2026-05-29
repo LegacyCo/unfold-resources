@@ -22,7 +22,7 @@ And here in our creation story, God does the unthinkable: He comes face to face 
 
 "For He knows our frame; He *remembers* that we are but dust." 
 
-Let's recall the story of Jesus visiting His disciples after the resurrection. John writes in John 20:22 that Jesus spoke peace to them, and then...breathed on them. They had become re-formed by His blood, and now they were re-born by His breath.
+Let's recall the story of Jesus visiting His disciples after the resurrection. John writes in ==John 20:22== that Jesus spoke peace to them, and then...breathed on them. They had become re-formed by His blood, and now they were re-born by His breath.
 
 ## Cross Reference
-See Ezekiel 37:9 for another instance of God commanding breath to bring life into the body.
+See ==Ezekiel 37:9== for another instance of God commanding breath to bring life into the body.
