@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-Paul grounds his argument in Scripture. He asks, “What does the Scripture say?” Then he takes us back to Genesis 15:6, where Abraham believed God, and it was counted to him as righteousness.
+Paul grounds his argument in Scripture. He asks, “What does the Scripture say?” Then he takes us back to ==Genesis 15:6==, where Abraham believed God, and it was counted to him as righteousness.
 
 This is the foundation of Paul’s argument in Romans 4. Abraham was not justified by works. He was not made righteous by religious performance. He was not accepted by God because he had achieved some level of moral maturity. Abraham believed God. 
 
