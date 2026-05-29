@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-We have here in chapter 5 something we didn’t have in chapter 4; “fathering” language. When chapter 4 tells the story of Cain, it says, “Eve conceived and she gave birth to a son” (Genesis 4.1). 
+We have here in chapter 5 something we didn’t have in chapter 4; “fathering” language. When chapter 4 tells the story of Cain, it says, “Eve conceived and she gave birth to a son” (==Genesis 4.1==). 
 
 But here in chapter 5, a father has a son who is born in his own image and likeness.
 
