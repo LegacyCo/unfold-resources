@@ -25,6 +25,6 @@ You and I may not be prophets in the same office as Ezekiel, but we are still ca
 
 This is why our gospel witness must be anchored in obedience, not outcome.
 
-Paul says something similar in 2 Corinthians 2:15–16 when he describes believers as the aroma of Christ. To some, that aroma is life. To others, it is death. The same witness produces different responses. The difference is not always in the message. Often, the difference is in the hearer.
+Paul says something similar in ==2 Corinthians 2:15–16== when he describes believers as the aroma of Christ. To some, that aroma is life. To others, it is death. The same witness produces different responses. The difference is not always in the message. Often, the difference is in the hearer.
 
 That is both the burden and the freedom of faithful witness. The burden is that we must speak even when refusal is possible. The freedom is that we don't have to carry the responsibility for how people respond.
