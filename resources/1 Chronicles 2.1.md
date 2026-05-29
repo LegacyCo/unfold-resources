@@ -18,7 +18,7 @@ The Chronicler is not simply preserving family records. He is tracing the line o
 
 So the genealogy moves from a general focus to a more specific focus — toward Judah.
 
-Judah was not the firstborn. Reuben was. But Reuben forfeited his position through sin, and God’s redemptive plan moved through Judah instead (see Genesis 35:22, 49:3-4, 1 Chronicles 5:1). This is one of the consistent themes of Scripture: God’s purposes are not bound by human expectation, birth order, status, or visible strength. The Lord chooses according to His own wisdom.
+Judah was not the firstborn. Reuben was. But Reuben forfeited his position through sin, and God’s redemptive plan moved through Judah instead (see ==Genesis 35:22==, ==Genesis 49:3-4==, ==1 Chronicles 5:1==). This is one of the consistent themes of Scripture: God’s purposes are not bound by human expectation, birth order, status, or visible strength. The Lord chooses according to His own wisdom.
 
 And from Judah would eventually come David.
 
