@@ -14,13 +14,13 @@ God could have formed Eve out of the ground like He formed Adam, or He could hav
 
 Most modern translations say that God took Adam's rib and formed Eve from the rib. The Hebrew word for rib is _sela_. _Sela_ is used in the Old Testament 40 times. The only two times that word is translated “rib” is here in Genesis 2. The other 38 times this word is used it is translated “side" or some variation of side, like “hillside" or “inward side.” 
 
-For example: The word “sela" is used to describe the side of the tabernacle (Exodus 26:20), the side of the temple (Ezekiel 41:5), and the side of the ark of the covenant (Exodus 25:12).
+For example: The word “sela" is used to describe the side of the tabernacle (==Exodus 26:20==), the side of the temple (==Ezekiel 41:5==), and the side of the ark of the covenant (==Exodus 25:12==).
 
 So, a better and more consistent translation of Genesis 2:21 should read, "and He took of his side, and closed up the flesh in its place." 
 
 When we see that "side" is a better translation for where God pulled something from man to create woman, we can now see Jesus in that moment. 
 
-"Then the soldiers came and broke the legs of the men crucified next to Him. But when they came to Jesus and saw that He was already dead, they did not break His legs. But one of the soldiers pierced His side with a spear, and immediately blood and water came out" (John 19:32-34).
+"Then the soldiers came and broke the legs of the men crucified next to Him. But when they came to Jesus and saw that He was already dead, they did not break His legs. But one of the soldiers pierced His side with a spear, and immediately blood and water came out" (==John 19:32-34==).
 
 God took from the side of Adam and created a bride for him. And on the cross, God took blood and water from the side of Jesus and formed the church…the Bride of Christ. The blood deals with our sins. The water causes us to receive His life. Eve was able to receive life because Adam slept. We are able to receive life because Jesus died.
 
@@ -43,7 +43,7 @@ We are the bride. The Father’s eternal purpose is to gain a bride for His Son,
 
 God said it is not good for man to be alone. You could say that before Eve was formed Adam wasn’t alone, he was with God. But God knew there was something in Adam that needed relationship with Eve. Even Adam's fellowship with God in the garden did not meet the need that Adam had for companionship. He had a Lord, but he still needed a bride. Isolation...even isolation with God, is not God's design. Community is the creation of God. God has placed in each of us something that needs to be in relationship with others. God Himself is a relational being. He is family. He Himself is community. Being created in His image means that the communal parts of His nature are also in us. 
 
-To put it plainly, living a life of isolation is not how God designed us. Now, to put it in New Covenant church language, living a life of isolation from the body of Christ is not how God designed us. This is why Hebrews 10:25 tells us not to forsake the gathering together of the Body, "as some of you are prone to do."
+To put it plainly, living a life of isolation is not how God designed us. Now, to put it in New Covenant church language, living a life of isolation from the body of Christ is not how God designed us. This is why ==Hebrews 10:25== tells us not to forsake the gathering together of the Body, "as some of you are prone to do."
 
 "...you are no longer separated as strangers and foreigners, you are family members of the household of God, and together you are being built up as the dwelling place of God" (Ephesians 2:19-22).
 
