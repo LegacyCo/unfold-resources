@@ -25,7 +25,7 @@ The Levites are a reminder that access to God is always a gift, but it is not so
 ## Application
 This naturally points forward to Christ and the full access given to us in the New Covenant. Jesus is not another guardian of the sanctuary. He is the true and better mediator who opens the way into God’s presence through His own blood.
 
-But this does not make the presence of God less holy. It means our access has been secured by a better sacrifice and a better Priest. Under the New Covenant, we do not stand at a distance from God’s presence in fear. We draw near with confidence because Christ has gone before us. But confidence is not carelessness. The same book of Hebrews that tells us to come boldly also says, “Let us have grace, by which we may serve God acceptably with reverence and godly fear” (Hebrews 12:28).
+But this does not make the presence of God less holy. It means our access has been secured by a better sacrifice and a better Priest. Under the New Covenant, we do not stand at a distance from God’s presence in fear. We draw near with confidence because Christ has gone before us. But confidence is not carelessness. The same book of Hebrews that tells us to come boldly also says, “Let us have grace, by which we may serve God acceptably with reverence and godly fear” (==Hebrews 12:28==).
 
 ## Cross References
 Hebrews 10:19–22 - "Therefore, brethren, having boldness to enter the Holiest by the blood of Jesus, by a new and living way which He consecrated for us, through the veil, that is, His flesh, and having a High Priest over the house of God, let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience and our bodies washed with pure water."
