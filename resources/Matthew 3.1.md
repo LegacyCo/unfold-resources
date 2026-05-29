@@ -16,7 +16,7 @@ The wilderness exposes us. There are no distractions or comforts to hide your qu
 
 God uses the wilderness to show us who we really are.
 
-Deuteronomy 8:2 says He led Israel into the wilderness to humble them, test them, and reveal what was in their hearts…not so _He_ could see it, He already knew what was in their hearts. He wanted *Israel* to see it.
+==Deuteronomy 8:2== says He led Israel into the wilderness to humble them, test them, and reveal what was in their hearts…not so _He_ could see it, He already knew what was in their hearts. He wanted *Israel* to see it.
 
 God loves the wilderness. He tells Israel in Hosea 2:14, “Behold, I will allure her and draw her into the wilderness and speak tenderly to her heart. And from _that place_ I will give her her vineyards.”
 
