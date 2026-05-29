@@ -14,11 +14,11 @@ There was something in Abel that caused the Lord to look favorably on his offeri
 
 Abel came to God in faith, and that made all the difference. As Hebrews 11:6 tells us, "Without faith it’s impossible to please God."
 
-Hebrews 11 also says this about Abel, “Faith is the substance of things hoped for, the evidence of things not seen. For by...faith Abel offered to God a more excellent sacrifice than Cain, through which he obtained a witness that he was righteous…and though he is dead, he still speaks” (Hebrews 11:1-4).
+Hebrews 11 also says this about Abel, “Faith is the substance of things hoped for, the evidence of things not seen. For by...faith Abel offered to God a more excellent sacrifice than Cain, through which he obtained a witness that he was righteous…and though he is dead, he still speaks” (==Hebrews 11:1-4==).
 
 This is staggering. Abel was righteous.
 
-It was Abel’s faith that caused his offering to delight the heart of the Lord. His offering of faith testified that he was righteous. Jesus Himself calls him “righteous Abel” in Matthew 23:35, and 1 John 3:12 says Cain murdered him because “his works were evil and his brother’s righteous.” 
+It was Abel’s faith that caused his offering to delight the heart of the Lord. His offering of faith testified that he was righteous. Jesus Himself calls him “righteous Abel” in ==Matthew 23:35==, and ==1 John 3:12== says Cain murdered him because “his works were evil and his brother’s righteous.” 
 
 A son of Adam had obtained righteousness — outside the garden, never knowing the intimacy of walking with God in the cool of the day, raised by parents who introduced sin and death to all of humanity. Yet, here is a son of Adam obtaining righteousness from God.
 
