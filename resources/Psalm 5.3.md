@@ -12,7 +12,7 @@ is_published: true
 ## Word Study
 David begins Psalm 5 by bringing his words, his thoughts, and his cry before the Lord. This is the picture of a man ordering his heart before God at the beginning of the day.
 
-The Hebrew word translated “direct” is *ʿārak*, which means to arrange, set in order, lay out, or prepare. It is used elsewhere for arranging wood on the altar, setting bread before the Lord, preparing a table, or even lining up a battle formation (Genesis 22:9; Leviticus 1:7–8; Leviticus 24:8; Psalm 23:5).
+The Hebrew word translated “direct” is *ʿārak*, which means to arrange, set in order, lay out, or prepare. It is used elsewhere for arranging wood on the altar, setting bread before the Lord, preparing a table, or even lining up a battle formation (==Genesis 22:9==; ==Leviticus 1:7–8==; ==Leviticus 24:8==; ==Psalm 23:5==).
 
 That means David is not simply throwing anxious thoughts toward heaven or making his way through a prayer list. He is laying the matter before God with intention. He brings his words, his groaning, his cry, his burden, and his need, and he arranges it before the Lord like a priest placing the sacrifice on the altar.
 
