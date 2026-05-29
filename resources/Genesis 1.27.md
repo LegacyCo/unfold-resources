@@ -14,7 +14,7 @@ What does it mean that man is created in the image and likeness of God? Does it 
 
 No. 
 
-John 4:24 says that "God is spirit." So to be created in His image means that we are created as spiritual beings.
+==John 4:24== says that "God is spirit." So to be created in His image means that we are created as spiritual beings.
 
 Now, the thing about spirit is that spirit is not defined by physical boundaries. Often, the Bible translates the Hebrew word for spirit as wind or breath. Just as the wind or breath has no shape or boundary, so too with spirit.
 
@@ -24,13 +24,13 @@ When God says that we are made in His image and likeness, it means that He creat
 
 The theologian D.S. Briscoe said this, "What is created always reflects something of the Creator. (We see this in art, music, architecture, poetry, and so on). So it is with men and women who know they, too, are created by a divine Creator; they long to reflect something of the Creator’s glory through their lives of obedience and faith...they are a people who have a sense of wonder, and this sense of wonder makes created people worshipers."
 
-There's a story in Matthew 22:17 where the Pharisees try to trap Jesus by getting Him to talk politics: “Jesus, what do you think; is it lawful to pay taxes to Caesar, or not?"
+There's a story in ==Matthew 22:17== where the Pharisees try to trap Jesus by getting Him to talk politics: “Jesus, what do you think; is it lawful to pay taxes to Caesar, or not?"
 
 Jesus said, "Show Me your tax money." They gave Jesus a coin. Jesus holds up the coin and in v20 He asks this question, "Whose image and inscription is this?" 
 
 The coin bore the image and inscription of Caesar. Jesus says, “Well, then give to Caesar the things that belong to him, and give to God the things that belong to Him." 
 
-In the same way that Caesar's coin had his own image engraved on it, so too, we have God's image engraved in us. We belong to Him because we bear His image. As Ecclesiastes 3:11 says, “Eternity has been placed in the heart of every man.” 
+In the same way that Caesar's coin had his own image engraved on it, so too, we have God's image engraved in us. We belong to Him because we bear His image. As ==Ecclesiastes 3:11== says, “Eternity has been placed in the heart of every man.” 
 
 No other part of creation can make such an astounding claim. When God determined to make man, He determined to make something of Himself in man. 
 
