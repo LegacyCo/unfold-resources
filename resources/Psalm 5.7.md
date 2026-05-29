@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-Psalm 5 contrasts the wicked with the one who comes before God in worship. David is clear that evil cannot dwell with the Lord, and the boastful cannot stand in His sight (Psalm 5:4–6).
+Psalm 5 contrasts the wicked with the one who comes before God in worship. David is clear that evil cannot dwell with the Lord, and the boastful cannot stand in His sight (==Psalm 5:4–6==).
 
 Then he says, “But as for me…”
 
