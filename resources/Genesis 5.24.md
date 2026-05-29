@@ -28,9 +28,9 @@ And the little girl said, “Well, every day God would come by and say to Enoch,
 
 A simple little story to simplify something that we may be tempted to make more difficult than it really is. Enoch walked with God, and God enjoyed walking with this son of Adam. Those aren’t my words, those are actually God’s words. Hebrews 11:5, “By faith Enoch was taken away so that he did not see death…for before he was taken he had this testimony, he pleased God.” Or as another translation puts it, “He became a pleasure to God.”
 
-Enoch’s walk of faith was pleasing to God. This is exactly what we saw in the life of Abel: it was faith that caused Abel’s offering to be received by God, and for God’s righteousness to be transferred to him. One of the bedrock principles of the kingdom, a primary lesson to be found in just about every story in the Bible, is that faith pleases God…and “without faith it is impossible to please God” (Hebrews 11:6). 
+Enoch’s walk of faith was pleasing to God. This is exactly what we saw in the life of Abel: it was faith that caused Abel’s offering to be received by God, and for God’s righteousness to be transferred to him. One of the bedrock principles of the kingdom, a primary lesson to be found in just about every story in the Bible, is that faith pleases God…and “without faith it is impossible to please God” (==Hebrews 11:6==). 
 
-This is no small thing. Imagine how difficult it must have been to walk with God during those years before the Flood. Consider that Enoch lived in a world so wicked that God was sorry He created it (Genesis 6:6-7). 
+This is no small thing. Imagine how difficult it must have been to walk with God during those years before the Flood. Consider that Enoch lived in a world so wicked that God was sorry He created it (==Genesis 6:6-7==). 
 
 In the midst of so much evil that God was on the verge of washing it all away, He finds one man who delights His heart with an unusual measure of faith. And that man defied the gravitational pull of Adam’s sin toward the grave. Enoch’s life prophesied of a day when God would pour out faith like a flood, and *all* who believe will be saved from the grave.
 
@@ -50,7 +50,7 @@ I think that’s what it was like for Enoch. More than anything else, he just wa
 
 And, for me, that’s the real takeaway of this story. As amazing as it is that Enoch walked with God and was no more, the power of this story isn’t so much that Enoch walked with God, it’s that God walked with Enoch. God entrusted Himself to a son of Adam. God was in relationship with a son of Adam. God enjoyed walking with this son of Adam so much that he just walked Him right on home to heaven.
 
-The scandalous message of the gospel is that we serve a God who walks with His people. God walked with Adam in the garden (Genesis 3:8). He walked with Noah before the flood (Genesis 6:9). God invited Abraham to walk with Him in Genesis 17. God walked through Israel's camp in the wilderness (Leviticus 26:12, Deuteronomy 23:14).  Revelation 2:1 says that Jesus walks among the seven golden lamp stands, which Revelation 1:20 says is the church.
+The scandalous message of the gospel is that we serve a God who walks with His people. God walked with Adam in the garden (==Genesis 3:8==). He walked with Noah before the flood (==Genesis 6:9==). God invited Abraham to walk with Him in Genesis 17. God walked through Israel's camp in the wilderness (==Leviticus 26:12==, ==Deuteronomy 23:14==).  ==Revelation 2:1== says that Jesus walks among the seven golden lamp stands, which ==Revelation 1:20== says is the church.
 
 God wants to walk with you, to be with you, to have fellowship with you, to share His heart with you…to keep *you* from being drug down by the gravitational pull of Adam’s grave, too.
 
