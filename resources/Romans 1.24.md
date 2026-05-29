@@ -24,7 +24,7 @@ This pattern is seen all over Scripture. Psalm 81:11–12 says, “But my people
 
 But, praise God, the opposite is also true. God gives more of Himself to those who seek Him. Jeremiah 29:13 says, “You will seek me and find me, when you seek me with all your heart.” James 4:8 says, “Draw near to God, and he will draw near to you.” Jesus says in Matthew 7:7–8, “Ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you.” God is not reluctant to be found. He gives Himself to those who want Him.
 
-This is seen in people like Moses, who asked to see God’s glory and was met by God’s self-revelation (Exodus 33:18–19). It is seen in David, who sought the Lord as his one desire, “to gaze upon the beauty of the Lord” (Psalm 27:4). It is seen in Mary of Bethany, who sat at the feet of Jesus and was commended because she had chosen “the good portion” (Luke 10:39–42).
+This is seen in people like Moses, who asked to see God’s glory and was met by God’s self-revelation (==Exodus 33:18–19==). It is seen in David, who sought the Lord as his one desire, “to gaze upon the beauty of the Lord” (==Psalm 27:4==). It is seen in Mary of Bethany, who sat at the feet of Jesus and was commended because she had chosen “the good portion” (==Luke 10:39–42==).
 
 God gives people over to what they truly desire.
 
