@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-Paul is referring back to Genesis 15:6, where Abraham “believed the LORD, and he counted it to him as righteousness.” But now Paul makes a crucial point: that statement was not written for Abraham’s sake alone. Abraham’s story was preserved in Scripture for *us*.
+Paul is referring back to ==Genesis 15:6==, where Abraham “believed the LORD, and he counted it to him as righteousness.” But now Paul makes a crucial point: that statement was not written for Abraham’s sake alone. Abraham’s story was preserved in Scripture for *us*.
 
 This means Genesis 15 is not a historical record of one man’s faith. It's a pattern. Abraham becomes a living witness of how God justifies the ungodly: not by works, not by circumcision, not by law-keeping, not by religious achievement, but by *faith*.
 
