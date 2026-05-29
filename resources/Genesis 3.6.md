@@ -12,17 +12,18 @@ is_published: true
 ## Commentary
 The serpent had successfully gotten Eve's eyes off of God and onto the forbidden tree. As she rolls the question around in her mind trying to understand what God actually said, she looks to the tree of knowledge for answers. She sees that the tree is...actually beautiful...and good.
 
-The tree of knowledge didn't present itself as evil; it wasn't rotten and smell-ey. There weren’t demons swinging from the branches. It looked good. 
+The tree of knowledge didn't present itself as evil; it wasn't rotten and smelley. There weren’t demons swinging from the branches. It looked good. 
 
 It wasn't the evil nature of the tree of knowledge that deceived Eve; it was the good. The good of that tree kills just as certainly as the evil.
 
 Sin will always present itself as something good; but in the end it always leads to death.
 
-As she examined the tree, her logic kicked in. She begins to consider and think and reason in herself. In her confusion, she doesn’t go to the God of knowledge, she goes to the tree of knowledge. Rather than examining the wonder of all that God had given her, Eve examines the one thing she doesn’t have;
-	“Why would God *not* want me to have this good thing? What’s so bad about this tree? Is God keeping something from me?” 
+As she examined the tree, her logic kicked in. She begins to consider and think and reason in herself. In her confusion, she doesn’t go to the God of knowledge, she goes to the tree of knowledge. Rather than examining the wonder of all that God had given her, Eve examines the one thing she doesn’t have; “Why would God *not* want me to have this good thing? What’s so bad about this tree? Is God keeping something from me?” 
 
 By questioning God’s word Eve questioned God’s character. It was a *question* that took Eve out of paradise…a question aimed at something God had said. When you question what He has said, you are questioning who He is.
-	“In the beginning was the Word, and the Word was with God and the Word was God” (John 1:1). 
+	
+“In the beginning was the Word, and the Word was with God and the Word was God” (==John 1:1==). 
+
 He is the word, the word is Him. 
 
 ------
@@ -30,9 +31,9 @@ One of the things I like to do when I read a passage in the Old Testament is ask
 
 So where is Jesus in this passage?
 
-Jesus became a son of Adam. Romans 8:3 says that Jesus, “took on the form of sinful flesh.” Paul puts it this way in Philippians 2; although Jesus existed in the form of God,
+Jesus became a son of Adam. ==Romans 8:3== says that Jesus, “took on the form of sinful flesh.” Paul puts it this way in Philippians 2; although Jesus existed in the form of God,
 
-"He did not consider equality with God as something to be used for His advantage, but He emptied Himself by taking the form of a bond-servant and being born in the likeness of men. And being found in appearance as a man, He humbled Himself by becoming obedient to the point of death: death on a cross" (Philippians 2:6-7).
+"He did not consider equality with God as something to be used for His advantage, but He emptied Himself by taking the form of a bond-servant and being born in the likeness of men. And being found in appearance as a man, He humbled Himself by becoming obedient to the point of death: death on a cross" (==Philippians 2:6-7==).
 
 By becoming a son of Adam, Jesus exposed Himself to everything you and I inherited from Adam. But unlike you and I, Jesus wasn’t dominated by Adam’s sinful flesh, He was ruled by the Holy Spirit of God. Hebrews 4:15 says that Jesus was, “tempted in all things just as we are, yet without sin.”
 
@@ -58,7 +59,7 @@ This is why true repentance, kingdom repentance, is so important. If repentance 
 
 The gospel has its own light, but it’s a light that unbelievers can’t see because their minds have been blinded by the god of this age.
 
-True repentance, kingdom repentance, means that I acknowledge that I’ve believed Adam’s lie. And the Spirit of God opens my eyes to see the truth of who God is as I finally see the light of the gospel in the face of Jesus. And as the Holy Spirit changes my mind, I can *then* change the direction I’m moving in. That’s kingdom repentance. It’s not my sin produced shame that leads to repentance, it’s the kindness of God that leads to repentance (Romans 2:4). 
+True repentance, kingdom repentance, means that I acknowledge that I’ve believed Adam’s lie. And the Spirit of God opens my eyes to see the truth of who God is as I finally see the light of the gospel in the face of Jesus. And as the Holy Spirit changes my mind, I can *then* change the direction I’m moving in. That’s kingdom repentance. It’s not my sin produced shame that leads to repentance, it’s the kindness of God that leads to repentance (==Romans 2:4==). 
 
 So what does this passage say about us? We are sons and daughters of Adam. Repentance and faith in the Son of God is the only way sons of Adam can ever be restored back to God.
 
