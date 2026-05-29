@@ -12,11 +12,11 @@ is_published: true
 ## Commentary
 This passage ends with Naomi telling Ruth to sit still and wait. That's not easy advice after such a significant moment. Ruth has made her appeal. Boaz has received it. Redemption is now in sight, but the process is not yet finished. There is still another relative to talk to.
 
-Boaz tells Ruth, “There is a relative closer than I” (Ruth 3:12). This is important because redemption of the sort Ruth had requested from Boaz was not based on sentiment alone. It was ordered by covenant responsibility. The nearest family member had the first right and responsibility to redeem the land and preserve the family line (Leviticus 25:25; Deuteronomy 25:5–10).
+Boaz tells Ruth, “There is a relative closer than I” (==Ruth 3:12==). This is important because redemption of the sort Ruth had requested from Boaz was not based on sentiment alone. It was ordered by covenant responsibility. The nearest family member had the first right and responsibility to redeem the land and preserve the family line (==Leviticus 25:25==; ==Deuteronomy 25:5–10==).
 
 Boaz cannot simply ignore that man because he cares for Ruth. He cannot bypass righteousness in the name of redemption. If he is going to redeem, he must redeem lawfully.
 
-That's why Boaz must go to the gate in Ruth 4. The city gate was where legal matters were settled publicly. Boaz will bring the nearer relative before the elders and give him the opportunity to redeem Naomi’s land and marry Ruth in order to preserve the name of the dead (Ruth 4:1–10).
+That's why Boaz must go to the gate in Ruth 4. The city gate was where legal matters were settled publicly. Boaz will bring the nearer relative before the elders and give him the opportunity to redeem Naomi’s land and marry Ruth in order to preserve the name of the dead (==Ruth 4:1–10==).
 
 This is important because Boaz’s integrity is part of the beauty of this story. He doesn't manipulate the process. He doesn't take a shortcut. He doesn't use Ruth’s vulnerability or Naomi’s desperation as an excuse to do things his own way.
 
