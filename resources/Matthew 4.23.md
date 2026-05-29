@@ -16,7 +16,7 @@ That’s the process of heaven coming to earth: Jesus. People. More people.
 
 But here’s the rub: there’s no further expansion of the Kingdom without a people who have surrendered everything to the King.
 
-This is why the call of Jesus is not supplemental. It’s total. When Jesus says, “Follow Me,” He’s not asking if you want to add Him to your life. He wants to live His life through you. “It’s no longer I who live, but Christ who lives in me" (Galatians 2:20).
+This is why the call of Jesus is not supplemental. It’s total. When Jesus says, “Follow Me,” He’s not asking if you want to add Him to your life. He wants to live His life through you. “It’s no longer I who live, but Christ who lives in me" (==Galatians 2:20==).
 
 If the Church refuses to live the Jesus way of life, the Church cannot carry His Kingdom. We may carry His name. We may sing His songs. We may use His language. But the Kingdom is only established where the King reigns. 
 
