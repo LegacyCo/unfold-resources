@@ -14,7 +14,7 @@ The psalmist describes a life that progressively settles for something inferior,
 
 First comes the opportunity to walk in the counsel of the wicked. That's a life that has become exposed to a way of living that is contrary to the kingdom of God. It's passing through an environment of darkness. The influence is present, but the darkness still hasn't been embraced.
 
-Then comes standing in the path of sinners. What was once movement slows to lingering. The person is no longer just passing by; they are beginning to consider. This is Eve standing by the tree of knowledge long enough to notice the fruit is actually beautiful to look at (Genesis 3:6).
+Then comes standing in the path of sinners. What was once movement slows to lingering. The person is no longer just passing by; they are beginning to consider. This is Eve standing by the tree of knowledge long enough to notice the fruit is actually beautiful to look at (==Genesis 3:6==).
 
 Finally, sitting in the seat of scoffers. This is no longer exposure or even curiosity. It's identification with another set of morals. A gravitational pull that was once resisted is now embraced. The person has taken a seat.
 
