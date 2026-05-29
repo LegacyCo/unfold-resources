@@ -16,7 +16,7 @@ American bomber Jacob DeShazer was eager to strike back after the Japanese bombe
 
 DeShazer flew his B-25 Bomber, the Bat Out of Hell, on a dangerous raid over Japan. After dropping his bombs on Nagoya, DeShazer lost his way in heavy fog and ejected as his plane ran out of fuel. He was taken prisoner, tortured by the Japanese, and threatened with imminent death. For almost two years, DeShazer suffered hunger, cold, and dysentery.
 
-In May of 1944, he was given a Bible. “You can keep it for three weeks,” said the guard. DeShazer grabbed it, clutched it to his chest, and started reading in Genesis. Scarcely sleeping, he read the Bible through several times, memorizing key passages. On June 8, after reading to Romans 10:9, Jacob prayed to receive Jesus Christ as his Savior.
+In May of 1944, he was given a Bible. “You can keep it for three weeks,” said the guard. DeShazer grabbed it, clutched it to his chest, and started reading in Genesis. Scarcely sleeping, he read the Bible through several times, memorizing key passages. On June 8, after reading to ==Romans 10:9==, Jacob prayed to receive Jesus Christ as his Savior.
 
 Immediately Matthew 5:44 became a critical text for DeShazer as he determined to treat his Japanese guards differently. His hostility toward them evaporated, and every morning he greeted them warmly. He prayed for them and sought to witness to them. He noticed their attitude toward him also changed, and they would often slip him food or supplies.
 
