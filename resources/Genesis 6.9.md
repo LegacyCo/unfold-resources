@@ -14,7 +14,7 @@ Righteous. Blameless. Walked with God.
 
 The Hebrew word that we translate “blameless” is _tamim_. Tamim means without blemish or defect. It can be translated perfect, which is actually how it is translated in the NKJV. Tamim means whole or complete. Noah was tamim.
 
-We need to be careful that we don’t think of "blameless" as being “sinless” because that’s not what Genesis 6 is telling us about Noah. The teaching of Scripture is that *all* have sinned and fallen short of the glory of God (Romans 3:23). There is only one son of Adam that overcame the power of sin, that was Jesus. 
+We need to be careful that we don’t think of "blameless" as being “sinless” because that’s not what Genesis 6 is telling us about Noah. The teaching of Scripture is that *all* have sinned and fallen short of the glory of God (==Romans 3:23==). There is only one son of Adam that overcame the power of sin, that was Jesus. 
 
 So Noah was: righteous and blameless, complete and whole,  without defect and perfect even — but he was not sinless. 
 
@@ -33,7 +33,7 @@ The moment you put your faith in Jesus, you become brand new, and God releases a
 
 Wholeness is not the finish line. In the kingdom, wholeness is the starting line. 
 
-Religion has lied to us, and told us that we will struggle with sin and brokenness until we die and go to heaven one day. If that’s true, then what makes us whole and sets us free from sin, death or Jesus? Because my Bible tells me that *Jesus* makes all things new (Revelation 21:5), and we’ve been made holy through the offering of *His* body once and for all (Hebrews 10:10). 
+Religion has lied to us, and told us that we will struggle with sin and brokenness until we die and go to heaven one day. If that’s true, then what makes us whole and sets us free from sin, death or Jesus? Because my Bible tells me that *Jesus* makes all things new (==Revelation 21:5==), and we’ve been made holy through the offering of *His* body once and for all (==Hebrews 10:10==). 
 
 Someone forgot to tell Noah that he needed to wait for heaven before he became blameless and walked in righteousness. 
 
@@ -45,4 +45,4 @@ Someone forgot to tell Abraham these things, because — apparently — Abraham 
 
 Noah, Enoch, Abel, Abraham — these were all sons of Adam who lived *after* the Fall, but *before* there was a law or atoning sacrificial system, yet they all attained righteousness. How? Because righteousness and wholeness comes by grace through faith. It’s the scandal of grace that would pronounce “blameless” over a son of Adam, someone the spirit of religion thinks it has a legal right to keep shackled to their past.
 
-So, I ask again, how much more should you and I believe that we are who God says we are? How much *more* should you and I receive God’s abundant grace and wholeness *now*, in this life, as a testimony that the blood of Jesus really does make all things new — that He really is the Lamb of God who became sin so that we would become the righteousness of God (2 Corinthians 5:21)?
+So, I ask again, how much more should you and I believe that we are who God says we are? How much *more* should you and I receive God’s abundant grace and wholeness *now*, in this life, as a testimony that the blood of Jesus really does make all things new — that He really is the Lamb of God who became sin so that we would become the righteousness of God (==2 Corinthians 5:21==)?
