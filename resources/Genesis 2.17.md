@@ -18,5 +18,5 @@ Hebrews 5:14 says,
 
 At this point in the story, maturity was the issue for Adam and Eve. They were not yet mature enough to handle the fruit of the tree of knowledge. God was growing them up into that maturity, but instead they took a shortcut, which was disobedience. 
 
-Adam was a son, but rather than learning obedience through the trial of temptation, he disobeyed, and never became perfected (mature). Hebrews 5:8-9 says that Jesus was also a Son, and He *did* learn obedience through His trials. And now, having been perfected, Jesus is the author of eternal salvation to all who obey Him.
+Adam was a son, but rather than learning obedience through the trial of temptation, he disobeyed, and never became perfected (mature). ==Hebrews 5:8-9== says that Jesus was also a Son, and He *did* learn obedience through His trials. And now, having been perfected, Jesus is the author of eternal salvation to all who obey Him.
 
