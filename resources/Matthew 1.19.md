@@ -16,7 +16,7 @@ That sounds strange to us because we usually think of engagement as something th
 
 So Joseph had a few possible paths.
 
-He could expose Mary publicly. If Mary was assumed to have been sexually unfaithful during betrothal, the law treated that as a serious covenant violation (Deuteronomy 22:23–24). By Joseph’s day, public disgrace may have been the more likely outcome than an actual execution, but the point remains: Mary could have been subjected to shame, accusation, and possibly severe legal and social consequences.
+He could expose Mary publicly. If Mary was assumed to have been sexually unfaithful during betrothal, the law treated that as a serious covenant violation (==Deuteronomy 22:23–24==). By Joseph’s day, public disgrace may have been the more likely outcome than an actual execution, but the point remains: Mary could have been subjected to shame, accusation, and possibly severe legal and social consequences.
 
 Or Joseph could divorce her quietly.
 
@@ -28,6 +28,6 @@ She would have been a young woman, pregnant, and no longer under Joseph’s cove
 
 That's what makes Joseph’s obedience after the angelic dream so significant.
 
-When Joseph takes Mary as his wife he publicly identifies with her. He brings her under his covering. He absorbs the shame *with* her. He protects her, the child, and the purposes of God unfolding through her womb (Matthew 1:20–25).
+When Joseph takes Mary as his wife he publicly identifies with her. He brings her under his covering. He absorbs the shame *with* her. He protects her, the child, and the purposes of God unfolding through her womb (==Matthew 1:20–25==).
 
 This verse reveals the tension Joseph was living in: righteousness before God, compassion toward Mary, and surrender to a plan he did not yet understand.
