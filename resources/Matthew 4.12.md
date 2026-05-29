@@ -18,7 +18,7 @@ Matthew makes that clear for us in a very subtle way, “When Jesus heard that 
 
 The kingdom is at hand, but good people are still experiencing bad things. 
 
-The lesson for us is if we’re not careful, we end up imposing our ideas of what God's kingdom should be like. This happened to John when he was thrown in prison. He expected the king to overthrow Rome. Instead, he winds up in a jail cell sending his disciples to ask Jesus if He really is the Messiah (see Matthew 11:2-6 and Luke 7:18-23).
+The lesson for us is if we’re not careful, we end up imposing our ideas of what God's kingdom should be like. This happened to John when he was thrown in prison. He expected the king to overthrow Rome. Instead, he winds up in a jail cell sending his disciples to ask Jesus if He really is the Messiah (see ==Matthew 11:2-6== and ==Luke 7:18-23==).
 
 The mystery of _this_ kingdom is that it overthrows all other kingdoms by offering up its King as a sacrifice. Other kings offer their people as a sacrifice. Not this kingdom. And in doing this, the King shows us what it’s like to live in His kingdom.
 
