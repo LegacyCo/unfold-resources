@@ -12,7 +12,7 @@ is_published: true
 ## Commentary
 Paul says Abraham grew strong in faith as he gave glory to God. Abraham didn't strengthen His faith by staring endlessly at the impossibility of his situation. He worshipped in the waiting. His focus was on the God who does the impossible. 
 
-This doesn't mean Abraham never struggled. The Genesis story is honest about Abraham's moments of weakness, fear, and attempts to help the promise come to pass. And I love that about the Bible. Scripture doesn't present the heroes of our faith as flawless superheroes. They were flesh and blood like you and I. As James says about Elijah, he was a man "with a nature like ours" (James 5:17). But in this passage, Paul is summarizing the trajectory of Abraham’s faith. His life was bent toward trust, even when his circumstances gave him every natural reason to doubt.
+This doesn't mean Abraham never struggled. The Genesis story is honest about Abraham's moments of weakness, fear, and attempts to help the promise come to pass. And I love that about the Bible. Scripture doesn't present the heroes of our faith as flawless superheroes. They were flesh and blood like you and I. As James says about Elijah, he was a man "with a nature like ours" (==James 5:17==). But in this passage, Paul is summarizing the trajectory of Abraham’s faith. His life was bent toward trust, even when his circumstances gave him every natural reason to doubt.
 
 ## Application
 This passage encourages us to be mindful of where our attention is while we wait on God.
