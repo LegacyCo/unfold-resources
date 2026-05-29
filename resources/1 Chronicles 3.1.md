@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-This chapter is a reminder that God had made a covenant with David. The Lord promised that David’s house, kingdom, and throne would be established forever (2 Samuel 7:12–16; Psalm 89:3–4, 34–37). So when the Chronicler lists David’s sons and then follows the royal line through Solomon, the kings of Judah, the exile, and beyond, he is communicating something vital to God's people: their exile did not erase His promise.
+This chapter is a reminder that God had made a covenant with David. The Lord promised that David’s house, kingdom, and throne would be established forever (==2 Samuel 7:12–16==; ==Psalm 89:3–4==, ==Psalm 89:34–37==). So when the Chronicler lists David’s sons and then follows the royal line through Solomon, the kings of Judah, the exile, and beyond, he is communicating something vital to God's people: their exile did not erase His promise.
 
 The family line continues.
 
@@ -24,7 +24,7 @@ The genealogy moves all the way through the exile and names descendants after th
 
 And ultimately, this line points us to Jesus.
 
-Matthew opens his Gospel by tracing Jesus as “the son of David, the son of Abraham” (Matthew 1:1). Luke also traces the line of Jesus through David (Luke 3:23–38). Jesus is the true Son of David, the King whose throne will not fail, whose kingdom will not end, and whose reign is not dependent on the strength of earthly institutions (Luke 1:32–33; Revelation 22:16).
+Matthew opens his Gospel by tracing Jesus as “the son of David, the son of Abraham” (==Matthew 1:1==). Luke also traces the line of Jesus through David (==Luke 3:23–38==). Jesus is the true Son of David, the King whose throne will not fail, whose kingdom will not end, and whose reign is not dependent on the strength of earthly institutions (==Luke 1:32–33==; ==Revelation 22:16==).
 
 ## Application
 There are seasons when the promise of God looks buried under failure and loss. That's how David’s line must have looked to God's people after the exile. No throne. No king. No visible glory.
