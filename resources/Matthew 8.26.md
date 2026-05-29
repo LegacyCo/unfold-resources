@@ -16,6 +16,6 @@ Could it be that Jesus was remaining inactive and silent in the storm in order t
 
 What Jesus wanted to produce in the disciples was not just more of *their* faith, but the faith *of* God — the faith *from* God — the faith that sees the miracle latent in the sleeping Savior. The faith of God sees a kingdom inside of a mustard seed, a king inside of a shepherd boy, an apostle inside of a murderous Pharisee. 
 
-We don't need to increase our faith, we need to ask the Holy Spirit for the gift of *His* faith. Where we see barrenness, He sees a holy nation. And when Balaam looked at that nation he declared, "The shout of a King is among them!" (Numbers 23:21) That's the faith to faith increase God's people need; not an increase in our faith, but an exchange — my fear and unbelief for the faith of God. 
+We don't need to increase our faith, we need to ask the Holy Spirit for the gift of *His* faith. Where we see barrenness, He sees a holy nation. And when Balaam looked at that nation he declared, "The shout of a King is among them!" (==Numbers 23:21==) That's the faith to faith increase God's people need; not an increase in our faith, but an exchange — my fear and unbelief for the faith of God. 
 
 This kind of exchange only happens in stormy seas. 
