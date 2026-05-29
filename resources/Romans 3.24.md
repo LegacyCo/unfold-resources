@@ -10,9 +10,9 @@ themes:
 is_published: true
 ---
 ## Commentary
-Romans 3:23 is often quoted by itself, but it was never meant to stand alone. Yes, all have sinned and fall short of the glory of God. Paul has spent the first three chapters of Romans bringing every person to the same conclusion. But Paul doesn't leave us there. The same “all” who are exposed in sin are now invited into justification by grace through the redemption that is in Christ Jesus.
+==Romans 3:23== is often quoted by itself, but it was never meant to stand alone. Yes, all have sinned and fall short of the glory of God. Paul has spent the first three chapters of Romans bringing every person to the same conclusion. But Paul doesn't leave us there. The same “all” who are exposed in sin are now invited into justification by grace through the redemption that is in Christ Jesus.
 
-Romans 3:23 diagnoses the condition, and Romans 3:24 announces the cure. Verse 23 tells the truth about our condition. Verse 24 tells the truth about God’s grace. If we only quote the first half, we may leave people under condemnation without showing them the doorway of redemption Paul immediately opens.
+==Romans 3:23== diagnoses the condition, and ==Romans 3:24== announces the cure. Verse 23 tells the truth about our condition. Verse 24 tells the truth about God’s grace. If we only quote the first half, we may leave people under condemnation without showing them the doorway of redemption Paul immediately opens.
 
 We were created to reflect God’s glory, image, and likeness. We were made to live before Him, walk with Him, bear His image, and display His nature in the earth. Our lives were meant to be like mirrors angled toward creation, reflecting the beauty, holiness, love, and authority of God.
 
