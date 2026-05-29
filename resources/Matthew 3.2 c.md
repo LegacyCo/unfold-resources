@@ -34,7 +34,7 @@ Religion makes demands of us that God never does. 
 
 And religious repentance begins with man: man’s fear, man’s reason and logic, man’s desire for control. 
 
-True repentance, however, begins with God: it’s the kindness of God that leads a man to repentance (Romans 2:4). 
+True repentance, however, begins with God: it’s the kindness of God that leads a man to repentance (==Romans 2:4==). 
 
 When repentance begins with me and my sin, my relationship with God will focus on behavior modification. And the result will be I will always keep God at a distance, because I only know how to relate to him through the lens of forgiveness.  
 
