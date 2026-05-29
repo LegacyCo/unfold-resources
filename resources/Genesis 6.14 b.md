@@ -22,15 +22,15 @@ Here are six parallels between the ark in Genesis 6 and the salvation that is fo
 
 Salvation for Noah and his family originated in the heart of God. Other than obedience to God’s word, Noah had no part in the plan. And because none of this was Noah’s idea, it wasn’t up to Noah to make sure the design was right and the boat would bring him to safety. That was God’s business. Because salvation was God’s idea, God was the one who guaranteed the result of His plan for salvation.
 
-In the same way, Jesus is the author *and* the finisher of our faith. Philippians 1:6 says, “He who began a good work in you will complete it.” Because He is the One who authored salvation, He will do what only He can do: bring us through the storm. Our responsibility is the same as Noah’s: obedience to what the Lord has said. So let’s lay aside every weight, and the sin that so easily ensnares us, and run with endurance the race that’s set before us. Let’s keep our eyes on Jesus. He is the author *and* finisher of our faith, who for the joy set before Him endured the cross (Hebrews 12:1-2). He guaranteed safe passage through the storms of this life and the day of judgement to come.
+In the same way, Jesus is the author *and* the finisher of our faith. ==Philippians 1:6== says, “He who began a good work in you will complete it.” Because He is the One who authored salvation, He will do what only He can do: bring us through the storm. Our responsibility is the same as Noah’s: obedience to what the Lord has said. So let’s lay aside every weight, and the sin that so easily ensnares us, and run with endurance the race that’s set before us. Let’s keep our eyes on Jesus. He is the author *and* finisher of our faith, who for the joy set before Him endured the cross (==Hebrews 12:1-2==). He guaranteed safe passage through the storms of this life and the day of judgement to come.
 
 2. There was only one ark
 
-God did not provide a fleet of ships and say, “Take your pick.” There was only one place of refuge available. In the world today there may be multiple religions all saying that they will bring you to the other side safely. But there is only one vessel of salvation provided by God. Jesus said, “… I am the way, the truth, and the life: no one comes to the Father, except thru Me (John 14:6).
+God did not provide a fleet of ships and say, “Take your pick.” There was only one place of refuge available. In the world today there may be multiple religions all saying that they will bring you to the other side safely. But there is only one vessel of salvation provided by God. Jesus said, “… I am the way, the truth, and the life: no one comes to the Father, except thru Me (==John 14:6==).
 
 3. There was only one door on the ark
 
-There was only one way onto the boat that was going to save Noah and his family. Jesus said, “I am the door. If anyone enters by Me, he will be saved…” (John 10:9). 
+There was only one way onto the boat that was going to save Noah and his family. Jesus said, “I am the door. If anyone enters by Me, he will be saved…” (==John 10:9==). 
 
 There is only one door that leads to salvation…and that door is Jesus.
 
@@ -46,9 +46,9 @@ The Ark had no sails, no oars, no engine (obviously), not even a rudder to help 
 
 6. The Ark was a partnership between God and man
 
-This plan of salvation involved a partnership between God and man. This was a type and shadow of the incarnation of God, of God taking on the form of flesh (Romans 8:3) to bring us salvation. There was a plan in the heart of God to provide salvation for humanity, but just as Noah built the ark, humanity played a role in the execution of God’s plan for our salvation. Think of it this way: in order for Jesus to save humanity, Jesus Himself had to become a man. A man was required to take back the authority that man lost in the garden. 
+This plan of salvation involved a partnership between God and man. This was a type and shadow of the incarnation of God, of God taking on the form of flesh (==Romans 8:3==) to bring us salvation. There was a plan in the heart of God to provide salvation for humanity, but just as Noah built the ark, humanity played a role in the execution of God’s plan for our salvation. Think of it this way: in order for Jesus to save humanity, Jesus Himself had to become a man. A man was required to take back the authority that man lost in the garden. 
 
-God said it was the Seed of the woman who would crush the head of the serpent. But what son of Eve could ever produce the perfect blood required to destroy sin and death? He couldn’t just be a man, the Savior had to be both God *and* Man. So when the fullness of time had come, “God sent forth His Son (_divine_), born of a woman (_human_)” (Galatians 4:4).
+God said it was the Seed of the woman who would crush the head of the serpent. But what son of Eve could ever produce the perfect blood required to destroy sin and death? He couldn’t just be a man, the Savior had to be both God *and* Man. So when the fullness of time had come, “God sent forth His Son (_divine_), born of a woman (_human_)” (==Galatians 4:4==).
 
 Salvation was a scandalous partnership between God and man.
 
