@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-Isaiah ministered in Judah during the reigns of Uzziah, Jotham, Ahaz, and Hezekiah (Isaiah 1:1), placing his prophetic ministry in the eighth century BC. This was a time of increasing political pressure. Assyria was rising as the dominant empire in the region, the northern kingdom of Israel would eventually fall to Assyria in 722 BC, and Judah itself would later face invasion by Sennacherib in 701 BC (2 Kings 17:5–6; 2 Kings 18:13; Isaiah 36–37).
+Isaiah ministered in Judah during the reigns of Uzziah, Jotham, Ahaz, and Hezekiah (==Isaiah 1:1==), placing his prophetic ministry in the eighth century BC. This was a time of increasing political pressure. Assyria was rising as the dominant empire in the region, the northern kingdom of Israel would eventually fall to Assyria in 722 BC, and Judah itself would later face invasion by Sennacherib in 701 BC (==2 Kings 17:5–6==; ==2 Kings 18:13==; Isaiah 36–37).
 
 In Isaiah's day Judah is living under the shadow of a rising enemy empire.
 
