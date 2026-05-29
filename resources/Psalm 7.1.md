@@ -22,7 +22,7 @@ David doesn't defend himself before people. He doesn't take matters into his own
 
 Psalm 7 is not the picture of a man pretending injustice doesn't matter. It's a man refusing to become his own judge, jury, and executioner. He appeals to the righteous God who sees what is true.
 
-This part of the larger character trait that made David a "man after God's own heart." When Saul pursued him, David had opportunities to kill Saul, but he refused to stretch out his hand against the Lord’s anointed. He entrusted judgment to God instead of forcing justice by his own hand (1 Samuel 24:1–12; 26:7–11). Paul gives the same instruction in Romans: “Beloved, do not avenge yourselves, but rather give place to wrath” because vengeance belongs to the Lord (Romans 12:19).
+This part of the larger character trait that made David a "man after God's own heart." When Saul pursued him, David had opportunities to kill Saul, but he refused to stretch out his hand against the Lord’s anointed. He entrusted judgment to God instead of forcing justice by his own hand (==1 Samuel 24:1–12==; ==1 Samuel 26:7–11==). Paul gives the same instruction in Romans: “Beloved, do not avenge yourselves, but rather give place to wrath” because vengeance belongs to the Lord (==Romans 12:19==).
 
 ## Application
 There are few things harder than being misunderstood, misrepresented, or falsely accused.
