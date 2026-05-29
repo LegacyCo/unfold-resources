@@ -30,4 +30,4 @@ That's how most of us think of righteousness. We think we received the *seed* of
 It was faith that put righteousness in Abraham's account in one transaction, not a succession of days where he did more good stuff than bad stuff. 
 
 ## Cross Reference
-See 1 Corinthians 5:19 - "That is, God was in Christ reconciling the world to Himself, not imputing their trespasses to them, and has committed to us the word of reconciliation."
+See ==1 Corinthians 5:19== - "That is, God was in Christ reconciling the world to Himself, not imputing their trespasses to them, and has committed to us the word of reconciliation."
