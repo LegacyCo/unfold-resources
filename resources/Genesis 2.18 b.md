@@ -12,8 +12,9 @@ is_published: true
 ## Commentary
 The woman was to be the man’s helper. She was going to help man fill the earth with God’s image, subdue it, and rule over creation. This word “helper” is interesting because if there is any suggestion that the woman was designed to be inferior because she helps the man, consider that this word “helper" is the same word Scripture uses to describe Yahweh’s relationship with Israel.
 
-"Israel, trust in the Lord, He is your helper" (Psalm 115:9).
-"Our soul waits for the Lord, He is our helper and our shield" (Psalm 33:20).
+"Israel, trust in the Lord, He is your helper" (==Psalm 115:9==).
+
+"Our soul waits for the Lord, He is our helper and our shield" (==Psalm 33:20==).
 
 This word “helper” carries with it a sense of strength and might.
 
