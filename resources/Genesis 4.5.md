@@ -12,7 +12,7 @@ is_published: true
 ## Commentary
 To say that God accepted Abel’s offering because Abel brought a firstborn animal and Cain did not is too simplistic. It’s not completely wrong, but it’s doesn’t take the time to examine a consistent theme that Scripture wants to teach us.
 
-An offering of grain is neither superior nor inferior to an animal offering. For example; when the Lord gives Israel the law and the sacrificial system in Leviticus, He includes both the offering of animals and the offering of grain as acceptable (see Leviticus 2:9).
+An offering of grain is neither superior nor inferior to an animal offering. For example; when the Lord gives Israel the law and the sacrificial system in Leviticus, He includes both the offering of animals and the offering of grain as acceptable (see ==Leviticus 2:9==).
 
 The text does not give us a detailed explanation of what was visibly wrong with Cain’s offering. And perhaps that's the point. From the outside, the two brothers both appear to be worshiping. Both bring an offering. Both approach God. Both participate in the same act of devotion. But God sees what we cannot see.
 
