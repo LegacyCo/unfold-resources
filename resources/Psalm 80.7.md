@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-For God’s face to "shine" means God turns toward His people with favor, mercy, attention, and covenant kindness. It is the opposite of God hiding His face, which often represents judgment, abandonment, or the painful experience of divine silence (see Dt 31:17-18, Ps 13:1, Isaiah 8:17 for examples of God hiding His face in judgment).
+For God’s face to "shine" means God turns toward His people with favor, mercy, attention, and covenant kindness. It is the opposite of God hiding His face, which often represents judgment, abandonment, or the painful experience of divine silence (see ==Deuteronomy 31:17-18==, ==Psalm 13:1==, ==Isaiah 8:17== for examples of God hiding His face in judgment).
 
 So in Psalm 80, the psalmist is praying something like: “Lord, turn toward us again. Let Your favor rest on us again. Look upon us with mercy, and we will be restored.”
 
