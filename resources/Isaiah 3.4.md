@@ -18,10 +18,10 @@ But Isaiah says the opposite will happen.
 
 The result is social disorder.
 
-Isaiah says the people will oppress one another, neighbor against neighbor, the child will be insolent toward the elder, and the base toward the honorable (Isaiah 3:5). 
+Isaiah says the people will oppress one another, neighbor against neighbor, the child will be insolent toward the elder, and the base toward the honorable (==Isaiah 3:5==). 
 
-Proverbs says, “When the righteous are in authority, the people rejoice; but when a wicked man rules, the people groan” (Proverbs 29:2). Ecclesiastes says, “Woe to you, O land, when your king is a child” (Ecclesiastes 10:16). Jesus looked on the crowds with compassion because they were “weary and scattered, like sheep having no shepherd” (Matthew 9:36).
+Proverbs says, “When the righteous are in authority, the people rejoice; but when a wicked man rules, the people groan” (==Proverbs 29:2==). Ecclesiastes says, “Woe to you, O land, when your king is a child” (==Ecclesiastes 10:16==). Jesus looked on the crowds with compassion because they were “weary and scattered, like sheep having no shepherd” (==Matthew 9:36==).
 
 Isaiah is showing us that bad leadership is not a small thing. It becomes judgment when a people are handed over to leaders who reflect their own immaturity, pride, and rebellion.
 
-But Isaiah will later prophesy of a *better* King: a Child born, a Son given, upon whose shoulder the government will rest. He will be called Wonderful Counselor, Mighty God, Everlasting Father, Prince of Peace, and of the increase of His government there will be no end (Isaiah 9:6–7).
+But Isaiah will later prophesy of a *better* King: a Child born, a Son given, upon whose shoulder the government will rest. He will be called Wonderful Counselor, Mighty God, Everlasting Father, Prince of Peace, and of the increase of His government there will be no end (==Isaiah 9:6–7==).
