@@ -14,7 +14,7 @@ Jesus' words here can sound like a statement about the cost of following Him. An
 
 But there is also something deeper being said.
 
-John tells us that the Word became flesh and “dwelt among us” (John 1:14). Literally, He *tabernacled* among us. The eternal Son of God came into the world He made. He walked on the ground He created. He breathed our air, touched our lepers, ate at our tables, wept at our graves, and carried our sorrows.
+John tells us that the Word became flesh and “dwelt among us” (==John 1:14==). Literally, He *tabernacled* among us. The eternal Son of God came into the world He made. He walked on the ground He created. He breathed our air, touched our lepers, ate at our tables, wept at our graves, and carried our sorrows.
 
 And yet, while He ministered on the earth, He had no place to lay His head.
 
@@ -53,6 +53,6 @@ He has entered death, broken its power, and opened the way home.
 
 So the Christian life begins where Jesus’ work is finished. We obey, yes. We follow, yes. We endure, yes. But we do all of it *from* rest, not *for* rest.
 
-Paul says the church is the body of Christ, “the fullness of Him who fills all in all” (Ephesians 1:23). Christ is the Head, and we are His body. That means the Son of Man, who once had nowhere to lay His head, now finds His resting place in a redeemed people joined to Him by the Spirit.
+Paul says the church is the body of Christ, “the fullness of Him who fills all in all” (==Ephesians 1:23==). Christ is the Head, and we are His body. That means the Son of Man, who once had nowhere to lay His head, now finds His resting place in a redeemed people joined to Him by the Spirit.
 
 The church is not merely an organization carrying His name. We are the resting place for His glorious head.
