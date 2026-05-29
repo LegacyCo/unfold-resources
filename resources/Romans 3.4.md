@@ -21,7 +21,7 @@ This is important because many people wrestle with God through the failures of t
 Paul gives us an important distinction: the unfaithfulness of God’s people exposes the condition of God’s people. It does not expose a flaw in God.
 
 ## Application
-God’s character is not on trial because man is unfaithful. "If we are faithless, He remains faithful; He cannot deny Himself" (2 Tim 2:13). His truth does not bend under the weight of human rebellion. In fact, Scripture often reveals God’s faithfulness most clearly against the backdrop of human failure. Israel’s unfaithfulness exposed Israel, not God.
+God’s character is not on trial because man is unfaithful. "If we are faithless, He remains faithful; He cannot deny Himself" (==2 Timothy 2:13==). His truth does not bend under the weight of human rebellion. In fact, Scripture often reveals God’s faithfulness most clearly against the backdrop of human failure. Israel’s unfaithfulness exposed Israel, not God.
 
 So don't let the unfaithfulness of people become the lens through which you interpret the faithfulness of God. Let God tell you who He is. Let Jesus reveal the Father. Let the cross be the final word about His character.
 
