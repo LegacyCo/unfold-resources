@@ -18,7 +18,7 @@ Noah finding grace for himself also means Noah finds grace for future generation
 
 We should be careful not to let familiarity with this story weaken its significance within the larger story Scripture is telling. Noah’s preservation not only impacts the generations after him, it also reaches back to those who came before him.
 
-In Genesis 3:15, God promised that the seed of the woman would come and crush the head of the serpent. That promise depended on the preservation of Adam’s line. If humanity is wiped from the earth, the promise dies with them. But Noah finds grace. A remnant is preserved. The promise stands.
+In ==Genesis 3:15==, God promised that the seed of the woman would come and crush the head of the serpent. That promise depended on the preservation of Adam’s line. If humanity is wiped from the earth, the promise dies with them. But Noah finds grace. A remnant is preserved. The promise stands.
 
 The ark, then, is not just a story about survival. It's a story about covenant faithfulness. God judges evil, but He does not abandon His promise. The flood may cover the earth, but it cannot bury the word God spoke in Eden.
 
