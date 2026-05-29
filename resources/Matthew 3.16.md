@@ -41,7 +41,7 @@ A people of the Spirit are: Aware of sin, but not defined by it. Free, not just 
 
 One is always looking at themselves. The other is too fascinated with God to be worried about themselves. 
 
-That’s why Paul can say this in 1 Corinthians 4:3-4, “I do not even judge myself. For I know of nothing against myself…He who judges me is the Lord.”
+That’s why Paul can say this in ==1 Corinthians 4:3-4==, “I do not even judge myself. For I know of nothing against myself…He who judges me is the Lord.”
 
 That’s what freedom sounds like.
 
