@@ -22,11 +22,11 @@ For example, when God comes to Abraham in Genesis 18 to tell him that Sarah will
 
 Trees are mentioned on the first page of Genesis, the first Psalm, the first page of the New Testament, and the last page of Revelation. Trees are some of the oldest living things on earth…with some living thousands of years. There are actually olive trees in the Garden of Gethsemane that are still alive today that heard Jesus praying the night He was arrested.
  
-Even in describing the Messiah who was to come to save His people, Scripture uses tree imagery. Jeremiah says that God will raise up a "righteous Branch" who will reign as King over His people (Jeremiah 23:5). Isaiah prophesies that the Messiah will be the, 
+Even in describing the Messiah who was to come to save His people, Scripture uses tree imagery. Jeremiah says that God will raise up a "righteous Branch" who will reign as King over His people (==Jeremiah 23:5==). Isaiah prophesies that the Messiah will be the, 
 
-"Shoot springing forth from the stem of Jesse, and a Branch from his roots bearing fruit" (Isaiah 11:1).
+"Shoot springing forth from the stem of Jesse, and a Branch from his roots bearing fruit" (==Isaiah 11:1==).
 
-Jesus Himself says that He is the "root of David” (Revelation 22:16).
+Jesus Himself says that He is the "root of David” (==Revelation 22:16==).
 
 And of course, just as a tree was the source of life for the first Adam, the Last Adam became the source of life for us all by being nailed to a tree.
 
