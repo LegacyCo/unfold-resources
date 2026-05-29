@@ -10,9 +10,9 @@ themes:
 is_published: true
 ---
 ## Commentary
-Genesis 6 is one of the darkest chapters in the early story of humanity. The wickedness of man had become great in the earth, and every intent of the thoughts of his heart was only evil continually (Genesis 6:5). 
+Genesis 6 is one of the darkest chapters in the early story of humanity. The wickedness of man had become great in the earth, and every intent of the thoughts of his heart was only evil continually (==Genesis 6:5==). 
 
-Then Scripture says something almost unthinkable: “The LORD was sorry that He had made man on the earth, and He was grieved in His heart” (Genesis 6:6).
+Then Scripture says something almost unthinkable: “The LORD was sorry that He had made man on the earth, and He was grieved in His heart” (==Genesis 6:6==).
 
 God is not indifferent to human rebellion. He is not emotionally detached from the ruin sin creates. The evil of mankind grieves the heart of God.
 
@@ -32,20 +32,20 @@ Even in a world so wicked that God was grieved He had made man, His grace was st
 
 Noah becomes a witness that grace can rest on *one faithful life* in the middle of a crooked generation.
 
-The next verse tells us that Noah was a just man, blameless in his generations, and that Noah walked with God (Genesis 6:9). This doesn't mean Noah was sinless. It means that in a generation moving away from God, Noah lived turned toward God. His life became a landing place for God's grace.
+The next verse tells us that Noah was a just man, blameless in his generations, and that Noah walked with God (==Genesis 6:9==). This doesn't mean Noah was sinless. It means that in a generation moving away from God, Noah lived turned toward God. His life became a landing place for God's grace.
 
 ## Word Study
-The Hebrew word for grace is _hen_. This word is used 69x in the Old Testament. Fifty-seven of those times this word is translated “favor”…as in, “If I have found _favor_ in your sight, please do not pass your servant by” (Genesis 18:3).
+The Hebrew word for grace is _hen_. This word is used 69x in the Old Testament. Fifty-seven of those times this word is translated “favor”…as in, “If I have found _favor_ in your sight, please do not pass your servant by” (==Genesis 18:3==).
 
 Of the 69x the word _hen_ is used in the Old Testament, only 5x is that word translated “grace.” Is that because God wasn’t in the mood to be gracious in the Old Testament? No. God is unchanging. God didn’t get saved when Jesus died on the cross. 
 
-David writes in Psalm 84:11, “The Lord God…gives grace and glory…and withholds no good thing from those who walk with integrity.”
+David writes in ==Psalm 84:11==, “The Lord God…gives grace and glory…and withholds no good thing from those who walk with integrity.”
 
 His grace wasn’t absent in the Old Testament. 
 
 The reality of the Old Testament is that it was a covenant of works and obedience to Moses’ law, and depending on how a person related to the law was the measure of how much grace they walked in.
 
-But now in Christ, under a better covenant, grace has been poured out. We are no longer saved because of works, we are saved because of grace. Just look at Paul’s language in Ephesians 2. He says things like, "For by grace you have been saved through faith; and this is not of yourselves, it is the gift of God; not a result of works, so that no one may boast" (Ephesians 2:8-9).
+But now in Christ, under a better covenant, grace has been poured out. We are no longer saved because of works, we are saved because of grace. Just look at Paul’s language in Ephesians 2. He says things like, "For by grace you have been saved through faith; and this is not of yourselves, it is the gift of God; not a result of works, so that no one may boast" (==Ephesians 2:8-9==).
 
 Whereas the Old Testament only used this beautiful word 5x, the New Testament, which is 1/3 the size of the old, uses the word for grace 155x (that’s a 9,000% increase in the mention of grace between the old and new testament). Abundant grace has now been poured out on creation because, as John writes in John 1, the embodiment of grace has come to us: "The Word became flesh and dwelt among us, and we beheld His glory, the glory as of the only begotten of the Father, full of grace and truth…For the law was given through Moses, but grace and truth came through Jesus Christ” (John 1:14, 17).
 
