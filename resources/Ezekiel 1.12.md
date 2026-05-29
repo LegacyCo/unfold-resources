@@ -25,8 +25,8 @@ Though we should be careful not to make this passage only about human decision-m
 
 The living creatures show us a different way. They move as those directed by the Spirit.
 
-The Christian life is meant to be lived in the posture of surrender. Romans 8:14 says those who are led by the Spirit of God are sons of God. 
+The Christian life is meant to be lived in the posture of surrender. ==Romans 8:14== says those who are led by the Spirit of God are sons of God. 
 
 To be led by the Spirit doesn't mean we become robots. It means we refuse to be governed by our desires or circumstances. We learn to move in response to God rather than constantly turning toward whatever seems most urgent or attractive.
 
-"The wind blows where it wishes, and you hear the sound of it, but you do not know where it is coming from and where it is going; so is everyone who has been born of the Spirit” (John 3:8). 
+"The wind blows where it wishes, and you hear the sound of it, but you do not know where it is coming from and where it is going; so is everyone who has been born of the Spirit” (==John 3:8==). 
