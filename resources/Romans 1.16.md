@@ -14,7 +14,7 @@ The gospel, the good news of what God has done in Christ, is the means through w
 
 The gospel is not simply another story about another god. It is not a set of doctrines to be followed or a moral vision to be adopted. It is the announcement of what God has done in Jesus Christ through His death, resurrection, and reign. Through that announcement, God reveals His eternal plan and brings people into the life He created.
 
-This is why Paul is not ashamed of the gospel. From a human perspective, the message may seem weak. It centers on a crucified Messiah, which was offensive to Jews and foolishness to Gentiles (1 Corinthians 1:23). But Paul understands that the power of God is at work through this very message. What appears weak in the eyes of the world is the means by which God saves.
+This is why Paul is not ashamed of the gospel. From a human perspective, the message may seem weak. It centers on a crucified Messiah, which was offensive to Jews and foolishness to Gentiles (==1 Corinthians 1:23==). But Paul understands that the power of God is at work through this very message. What appears weak in the eyes of the world is the means by which God saves.
 
 The phrase “unto salvation” should also be understood broadly. Paul is not speaking only of the initial moment of conversion, though that is certainly included. Salvation in Scripture includes forgiveness, justification, deliverance from sin’s dominion, reconciliation to God, life in the Spirit, and the final hope of resurrection. The gospel is the power of God for the whole work of salvation from beginning to end.
 
