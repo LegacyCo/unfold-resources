@@ -20,4 +20,4 @@ Many in Israel were longing for deliverance from Rome, oppression, poverty, and 
 
 Jesus came to deal with the root, not just the branches.
 
-The connection of Yeshua's name to Joshua is also significant. Joshua led Israel into the promised land, but Jesus brings His people into the greater salvation Joshua could only foreshadow (Joshua 1:1–9; Hebrews 4:8–10). 
+The connection of Yeshua's name to Joshua is also significant. Joshua led Israel into the promised land, but Jesus brings His people into the greater salvation Joshua could only foreshadow (==Joshua 1:1–9==; ==Hebrews 4:8–10==). 
