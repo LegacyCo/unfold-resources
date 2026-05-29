@@ -12,7 +12,7 @@ is_published: true
 ## Commentary
 Ruth 2 begins with Ruth going out to glean in the fields. She is a Moabite widow in Bethlehem with no husband, no income, and no obvious future. Her plan is simple: go behind the harvesters and gather whatever grain is left behind.
 
-This practice was part of God’s provision for the poor, the widow, the orphan, and the foreigner. Israel was commanded not to harvest the corners of the field or gather every leftover piece, but to leave some for the vulnerable (Leviticus 19:9–10; Deuteronomy 24:19–22). Ruth is not begging. She is stepping into a mercy God had already built into the life of His people.
+This practice was part of God’s provision for the poor, the widow, the orphan, and the foreigner. Israel was commanded not to harvest the corners of the field or gather every leftover piece, but to leave some for the vulnerable (==Leviticus 19:9–10==; ==Deuteronomy 24:19–22==). Ruth is not begging. She is stepping into a mercy God had already built into the life of His people.
 
 Then the text says she “happened to come” to the field of Boaz.
 
