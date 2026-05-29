@@ -14,7 +14,7 @@ When God separated light and darkness, He made an eternal distinction: darkness 
 
 Paul writes in 2 Corinthians 6:14, "Do not be unequally yoked together with unbelievers. For what fellowship has righteousness with lawlessness? And what communion has light with darkness?"
 
-If you are in Christ, your place is in the light, and you are to have no fellowship with the darkness…Jesus has called you out and separated you. “Come out from among them and be separate says the Lord” (2 Cor 6:17). The fruit of darkness can't come into the environment of light. God has separated those things. You can’t hide the things of the night in the realm of the day.
+If you are in Christ, your place is in the light, and you are to have no fellowship with the darkness…Jesus has called you out and separated you. “Come out from among them and be separate says the Lord” (==2 Corinthians 6:17==). The fruit of darkness can't come into the environment of light. God has separated those things. You can’t hide the things of the night in the realm of the day.
 
 We often think of darkness and light as an atmosphere and an environment, and it is. Those atmospheres of darkness and light produce their own fruit according to their likeness. Light produces life, understanding, clarity, revelation, joy, warmth, safety, and enemies can't hide in the light. They are exposed. The fruit of darkness is fear, worry, shame, gossip, lies, stealing, selfishness, and anxiety. 
 
