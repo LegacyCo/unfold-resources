@@ -12,7 +12,7 @@ is_published: true
 ## Commentary
 The book of Ezekiel opens in exile. The prophet is not prophesying from Jerusalem. He is “among the captives by the River Chebar,” living in Babylon with the exiles of Judah.
 
-Ezekiel was from a priestly family (Ezekiel 1:3), which means his life would have been ordered around the temple, sacrifice, holiness, and the prescribed worship of Yahweh. But now the priest is far from the temple and the people are living under the reality of God's judgment.
+Ezekiel was from a priestly family (==Ezekiel 1:3==), which means his life would have been ordered around the temple, sacrifice, holiness, and the prescribed worship of Yahweh. But now the priest is far from the temple and the people are living under the reality of God's judgment.
 
 For generations, the Lord had warned His people that if they continued to turn from Him, worshiped other gods, practiced injustice, shed innocent blood, and refused His word, the land itself would eventually vomit them out (Leviticus 18:24–28; Deuteronomy 28:15–68). The exile was the result of God doing exactly what He said He would do if His people broke covenant with Him.
 
