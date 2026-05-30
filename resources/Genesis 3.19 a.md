@@ -20,11 +20,11 @@ This is the judgment that has now come to each us; death is now our inheritance.
 
 “The dust (man) will return to the earth as it was: and the spirit will return to God who gave it.”
 
-When Adam ate, he didn’t immediately die…he didn’t die for another 900 years (see ==Genesis 5:5==). So what does Scripture mean here by “death entered through sin”?
+When Adam ate, he didn’t immediately die — he didn’t die for another 900 years (see ==Genesis 5:5==). So what does Scripture mean here by “death entered through sin”?
 
-The moment he ate the fruit, Adam died in that he became separated from God, the source of life. That’s what death is…separation from life. He died spiritually the moment he disobeyed God. 
+The moment he ate the fruit, Adam died in that he became separated from God, the source of life. That’s what death is: separation from life. He died spiritually the moment he disobeyed God. 
 
-When Paul wrote to the Ephesians in ==Ephesians 2:1== that they were, “dead in their trespasses and sins,” he didn’t mean that they were dead physically, he meant that they were dead spiritually.
+When Paul wrote to the Ephesians in ==Ephesians 2:1== that they were, “dead in their trespasses and sins,” he didn’t mean that they were dead physically. He meant they were dead spiritually.
 
 In the parable of the prodigal son in Luke 15, Jesus told a story about a boy who ran away from his father and squandered his inheritance on sinful living. When he finally returns, the father says, “My son was dead, and is now alive again…” (==Luke 15:24==). In his separation from the father, the son was dead because of sin.
 
