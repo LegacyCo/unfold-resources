@@ -26,29 +26,23 @@ In this passage, we see God ask His first question, “Adam, where are you?” G
 
 Many of us were raised in a religious tradition that taught us that God can't look on sin. This is a gross misinterpretation of a question that Habakkuk is asking in ==Habakkuk 1:13==. Most of us can’t even find Habakkuk in the Bible, but we’ve all heard that God can’t look on sin. 
 
-The spirit of religion taught us that God can’t look on sin, which is why so many in the church are caught in the endless cycle of sin, shame, self-effort, repeat. We sin, we feel shame—which causes us to hide from God, and rather than go to the One who longs to cover us and heal us and wash us, we think He can’t look on us until we clean ourselves up. So to get back to God, we perform the necessary religious rituals to clean ourselves up (FIG LEAVES!) so that God can look favorably on us again...until we mess up again because we haven’t allowed God to heal us and renew our minds, which begins the cycle again. 
+The spirit of religion taught us that God can’t look on sin, which is why so many in the church are caught in the endless cycle of sin, shame, self-effort, repeat. We sin, we feel shame—which causes us to hide from God, and rather than go to the One who longs to cover us and heal us and wash us, we think He can’t look on us until we clean ourselves up. So to get back to God, we perform the necessary religious rituals to clean ourselves up (_fig leaves_!) so that God can look favorably on us again...until we mess up again because we haven’t allowed God to heal us and renew our minds, which begins the cycle again. 
 
 Let me tell you very clearly: Jesus is the only answer for the problem of sin. If God can't look on sin, none of us would've ever gotten saved. 
 
 ==Psalm 25:8== says, "He shows sinners the way.” 
 
-Ephesians 2:4-6 says, 
+Ephesians 2:4-6 says, “…Because of His great love with which He loved us, even when we were dead in our sins, He made us alive with Christ…and raised us up, and seated us in heavenly places.”
 
-“…Because of His great love with which He loved us, even when we were dead in our sins, He made us alive with Christ…and raised us up, and seated us in heavenly places.”
+When a woman was caught in the act of adultery and brought before Jesus, He didn't turn His back on her and say “I can’t look at you.” He turned the tables on the religious leaders who tried to use that woman to trap Him. "You want to stone this woman to death for what she has done? Fine, the law of Moses gives you permission to do that. So whoever of you is without sin, you be the first one to cast your stone at this daughter." When they all leave, Jesus looks that woman straight in the eyes and tells her she is forgiven (see ==John 8:1-11==).
 
-When a woman was caught in the act of adultery and brought before Jesus, He didn't turn His back on her and say “I can’t look at you.” He actually turned the tables on the religious leaders who tried to use that woman to trap Him. "You want to stone this woman to death for what she has done? Fine, the law of Moses gives you permission to do that. So whoever of you is without sin, you be the first one to cast your stone at this daughter." When they all leave, Jesus looks that woman straight in the eyes and tells her she is forgiven (see ==John 8:1-11==).
-
-Let's ask the question: in that moment, when Jesus was in the dust with the adulterer, where was the God who Adam was so afraid of? Was He turning His back on the woman because God can’t look on sin? Did the Father need to have a sit down with Jesus to remind He can’t do that sort of thing? Does God have a split personality, and Jesus is the part of the Trinity who draws us in with His tender love and humility while the God of the Old Testament keeps us in line with His wrath and judgement? 
-
-Where was the God of the Old Testament, the One who Adam was hiding in the bushes from…where was He when Jesus was forgiving adulterers and eating with sinners? 
+Here's a question for you: in that moment, when Jesus was in the dust with the adulterer, where was the God who Adam was so afraid of? Was He turning His back on the woman because God can’t look on sin? Did the Father need to have a sit down with Jesus to remind He can’t do that sort of thing? Does God have a split personality, and Jesus is the part of the Trinity who draws us in with His tender love and humility while the God of the Old Testament keeps us in line with His wrath and judgement? Where was the God of the Old Testament — the One who Adam was hiding in the bushes from — where was He when Jesus was forgiving adulterers and eating with sinners? 
 
 ==2 Corinthians 5:19== tells us exactly where He was. He was *in Christ* reconciling them to Himself, not counting their transgressions against them.
 
-Isaiah says in Isaiah 59:1-2, 
+Isaiah says in Isaiah 59:1-2, "Behold, the LORD’s hand is not too short to save; nor His ear too heavy, that He cannot hear. But your iniquities have separated _you_ from God; and your sins have hidden His face from _you_." 
 
-"Behold, the LORD’s hand is not too short to save; nor His ear too heavy, that He cannot hear. But your iniquities have separated you from God; and your sins have hidden His face from you." 
-
-Religion has it backwards. Religion and the devil want you to believe that *He* has separated Himself from you…that *He* has hidden His face from you. But that’s not the story of Genesis 3…nor the story of Scripture. It's *our* sin which has separated us from God. We are the ones doing the hiding. As Paul writes in Romans 8:38-39, 
+Religion has it backwards. Religion and the devil want you to believe that *He* has separated Himself from you, that *He* has hidden His face from you. But that’s not the story of Genesis 3, nor the story of Scripture. It's *our* sin which has separated us from God. We are the ones doing the hiding. As Paul writes in Romans 8:38-39, 
 
 “For I am persuaded that neither death nor life, nor angels nor principalities nor powers, nor things present nor things to come, nor height nor depth, nor any other created thing, shall be able to separate us from the love of God which is in Christ Jesus our Lord.
 
