@@ -33,8 +33,8 @@ A lot of people want to be saved by God without being claimed by God. But there'
 
 The mercy that rescues you also marks you. The blood that delivers you also sets you apart. You are not your own. You were bought with a price (==1 Corinthians 6:19-20==).
 
-That gives your life meaning.
+That gives your life endless value.
 
-God does not just save us from death. He brings us near to Himself. He gives us a place in His service. He turns our lives into living reminders that mercy has interrupted judgment.
+God does not just save us from death. He brings us to Himself. He gives us a place in His service. He turns our lives into living reminders that mercy has interrupted judgment.
 
 If He has redeemed you, He has also claimed you. And if He has claimed you, then your life now belongs to Him.
