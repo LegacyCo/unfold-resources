@@ -20,7 +20,7 @@ Shame is a feeling.
 
 Guilt says, "I have done something bad." 
 
-Shame says, "I am bad." 
+Shame says, "I _am_ bad." 
 
 Being able to acknowledge our guilt and experience conviction from the Holy Spirit when we have done something wrong is good; it acknowledges guilt and leads to repentance. 
 
