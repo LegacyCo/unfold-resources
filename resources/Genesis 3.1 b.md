@@ -12,33 +12,33 @@ is_published: true
 ## Commentary
 The question from the serpent goes off like a thunderclap in, what so far, has been a beautiful story. Why was there temptation in the garden all of the sudden? Everything was going so good. How did this talking snake get here? And why is he questioning what the Lord God has said?
 
-To answer that question we need to remember what the garden is and what the garden is not. If we don’t understand God’s use of the garden in developing and maturing and shaping man, then we will miss how He intends to use the garden in OUR life. 
+To answer that question we need to remember what the garden is and what the garden is _not_. If we don’t understand God’s use of the garden in developing, maturing, and shaping man, then we will miss how He intends to use the garden in _our_ life. 
 
-The garden isn’t a metaphor for heaven. We don’t receive salvation, wait to die, and return to God in a garden called heaven…because the garden was never intended to be the final destination. The garden was the ground where man would walk with God and learn what it means to bear His image and authority in the earth SO THAT he could multiply that image in the earth, go outside of the garden, subdue that land, and transform it into garden, too. 
+The garden isn’t a metaphor for heaven. We don’t receive salvation, wait to die, and return to God in a garden called heaven — because the garden was never intended to be the final destination. The garden was the ground where man would walk with God and learn what it means to bear His image and authority in the earth _so that_ he could multiply that image in the earth, go outside the garden, subdue _that_ land, and transform it into garden, too. 
 
-If you believe that Jesus is who He says He is, salvation in Christ has restored you to that beautiful garden reality where God and man can walk together again, where God intends to mature you, shape you into the image of His Son, and teach you what it means to bear His image in the earth…SO THAT you can, in the language of the Great Commission, “go and make disciples of all nations”…transform “not garden” into garden.
+If you believe that Jesus is who He says He is, salvation in Christ has restored you to that beautiful garden reality where God and man can walk together again — where God intends to mature you, shape you into the image of His Son, and teach you what it means to bear His image in the earth — _so that_ you can, in the language of the Great Commission, “Go and make disciples of all nations” — transform “not garden” into garden.
 
 So let’s ask the question again: why was there temptation in the garden?
 
-Because the garden, just like the life you and I are now living, was not a greenhouse. Adam and Eve weren't growing in a sterile, controlled laboratory. They had been given incredible authority to bear God's image in the earth. The responsibility of showing the world what God was like demanded Adam to be a man of character…Eve to be a woman of character. 
+Because the garden, just like the life you and I are now living, was not a greenhouse. Adam and Eve weren't growing in a sterile, controlled laboratory. They had been given incredible authority to bear God's image in the earth. The responsibility of showing the world what God was like demanded Adam and Eve to be of God-like character.
 
-Character is not given. Character is only developed through the pressure of testing and trial in the presence of temptation. How you respond to your difficulty today determines the character you possess tomorrow. Temptation was present in the garden because Adam and Eve needed to develop the character that was required to carry the weight of showing the world who God is.
+Character is not given. Character is only developed through the pressure of testing and trial in the presence of temptation — the temptation to quit, to carve your own path, to lean on reason and logic when God's process is taking too long. How you respond to your difficulty today determines the character you possess tomorrow. Temptation was present in the garden because Adam and Eve needed to develop the character that was required to carry the weight of showing the world who God is.
 
-Warren Wiersbe said that a "temptation is an opportunity to accomplish a good thing in a bad way." It's good to take your wife out for dinner. It's bad to steal the money to pay the bill. The serpent offered Eve something that was good and that she wanted...and he could give it to her right away. The tree of knowledge was a shortcut. It's the same tactic Satan tempted Jesus with in the desert; "Worship me and all the kingdoms of the world will be yours." Bypass the cross and let ME give you these kingdoms now.
+Warren Wiersbe said that a "temptation is an opportunity to accomplish a good thing in a bad way." It's good to take your wife out for dinner. It's bad to steal the money to pay the bill. The serpent offered Eve something that was good and that she wanted...and he could give it to her right away. The tree of knowledge was a shortcut. It's the same tactic Satan tempted Jesus with in the desert, "Worship me and all the kingdoms of the world will be yours." Bypass the cross and let _me_ give you these kingdoms now.
 
 So how did the serpent tempt Eve? He deceived her by (1) diluting the holiness of God’s name and (2) twisting God’s words.
 
-*First*, he diluted God’s name. In Genesis 1, the word “Elohim” is used for God's name…”in the beginning Elohim created the heavens and the earth…Elohim said let there be light…and Elohim saw that the light was good” etc. 
+*First*, he diluted God’s name. In Genesis 1, the word “Elohim” is used for God's name, ”In the beginning _Elohim_ created the heavens and the earth…_Elohim_ said let there be light…and _Elohim_ saw that the light was good,” etc. 
 
-In Genesis 2, once there is something created for God to be in relationship with, He is not called Elohim, He is called “Lord God”, literally “Yahweh Elohim.” 
+In Genesis 2, once there is something created for God to be in relationship with, He is not called Elohim, He is called “Lord God.” Literally, “Yahweh Elohim.” 
 
 What’s the difference? Elohim is a general term for God, but Yahweh is a covenant name. Once there is creation for Him to be in covenant with, He is referred to by His covenant name. This becomes important when we look at what the serpent said to Eve, “Did GOD really say…?” The serpent diluted the holiness of Yahweh Elohim’s covenantal name.
 
 What's the significance? 
 
-Imagine you’re in London. You meet King Charles at your hotel. The King says to you, “Go anywhere you want in London, it’s a fabulous city. Just don’t go by the river today…there’s a bomb threat.” 
+Imagine you’re in London. You meet King Charles at your hotel. The King says to you, “Go anywhere you want in London, it’s a fabulous city. Just don’t go by the river today. There’s a bomb threat.” 
 
-Then a stranger comes up and says, “Did Chuck really just say not to go by the river? Awe, he’s just being silly…there’s no danger by the river today…that’s just Chuck being dramatic.” 
+Then a stranger comes up and says, “Did Chuck really just say not to go by the river? Awe, he’s just being silly. There’s no danger by the river today. That’s just Chuck being dramatic.” 
 
 By making common the royal name, the stranger dilutes the royal command.
 
@@ -54,9 +54,9 @@ The serpent first tempts and deceives Eve by diluting God's name, and then by tw
 
 The serpent re-worded God's command to have a nuance of prohibition so that God's command could now serve his own purpose of confusion rather than God's purpose of love expressed through obedience.
 
-The tree of knowledge was put in the garden because there could be no freedom to obey if there was not freedom to disobey. There could be no true worship of God unless there was the freedom to worship something else. Remember, love demands boundaries. By its very nature, love says, “I will do *this* and not *that*...even when I want to do that, for love I will choose not to.” If there are no boundaries there is no love.
+The tree of knowledge was put in the garden because there could be no freedom to obey if there was not freedom to disobey. There could be no true worship of God unless there was the freedom to worship something else. Remember, love demands boundaries. By its very nature, love says, “I will do *this* and not *that*...even when I want to do that. For love I will choose not to.” If there are no boundaries there is no love.
 
 ## Application
-We see here Satan's strategy; misrepresent the God of covenant and twist His words to make Him look strict. 
+We see here Satan's strategy: misrepresent the God of covenant and twist His words to make Him look strict. 
 
-This is what He tried to do with Jesus in the desert; "If You are the Son of God..." That's not what the Father declared over the Son at the Jordan River. The Father said, “This is My BELOVED Son." Every word that proceeds from the mouth of God is life...hold on to it for dear life, because you don't live by bread alone, but by every word that proceeds from the mouth of the Lord (==Matthew 4:4==).
+This is what He tried to do with Jesus in the desert; "If You are the Son of God..." That's not what the Father declared over the Son at the Jordan River. The Father said, “This is My BELOVED Son." Every word that proceeds from the mouth of God is life. Hold on to it for dear life, because you don't live by bread alone, but by every word that proceeds from the mouth of the Lord (==Matthew 4:4==).
