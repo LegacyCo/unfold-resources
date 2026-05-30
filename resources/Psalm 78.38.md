@@ -18,7 +18,7 @@ Verse 38 says God was full of compassion. He forgave their iniquity. He restrain
 
 This doesn't mean God ignored their sin. The psalm makes clear that rebellion brought real consequences. But judgment was not the only thing revealed in the wilderness. Compassion was revealed there too.
 
-This is consistent with how God revealed Himself to Moses: “merciful and gracious, longsuffering, and abounding in goodness and truth” (==Exodus 34:6–7==). Nehemiah later looks back on the wilderness generation and says that even though they were disobedient, God did not forsake them because He is “gracious and merciful” (==Nehemiah 9:16–21==). Psalm 103 says the Lord remembers that we are dust and is compassionate toward those who fear Him (==Psalm 103:8–14==).
+This is consistent with how God revealed Himself to Moses: “Merciful and gracious, longsuffering, and abounding in goodness and truth” (==Exodus 34:6–7==). Nehemiah later looks back on the wilderness generation and says that even though they were disobedient, God did not forsake them because He is “gracious and merciful” (==Nehemiah 9:16–21==). Psalm 103 says the Lord remembers that we are but dust and is compassionate toward those who fear Him (==Psalm 103:8–14==).
 
 ## Application
 The Lord is not quick to abandon His people. He is patient, compassionate, and full of mercy. He knows our weakness. He remembers our frame (==Psalm 103:14==). He is not surprised by the frailty of flesh.
