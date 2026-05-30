@@ -28,13 +28,11 @@ Naomi tells her, “the man will not rest until he has concluded the matter this
 
 Ruth has done what she needed to do. She came humbly. She asked for redemption. She entrusted herself to the right man. Now she must sit still while the redeemer works.
 
-That's why Naomi can tell Ruth to sit still. Not because nothing is happening, but because Boaz is doing what only Boaz can do.
+That's why Naomi can tell Ruth to sit still. Boaz is doing what only Boaz can do.
 
-Ruth’s stillness is an act of trust.
+Ruth’s stillness is an act of trust. She has placed her future in the hands of the redeemer, and now she must resist the temptation to manage what he has promised to finish. 
 
-She has placed her future in the hands of the redeemer, and now she must resist the temptation to manage what he has promised to finish. 
-
-This is where faith is tested. Not when we are taking the step, but *after* the step has been taken.
+This is where faith is really tested. Not when we're taking the step, but *after* the step has been taken and nothing seems to have happened.
 
 There are times when obedience looks like action — start the ministry, list the house, take the stand — and there are times when obedience looks like sitting still while the redeemer works.
 
