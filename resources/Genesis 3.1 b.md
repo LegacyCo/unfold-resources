@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-The question from the serpent goes off like a thunderclap in, what so far, has been a beautiful story. Why was there temptation in the garden all of the sudden? Everything was going so good…how did this talking snake get here, and why is he questioning what the Lord God has said?
+The question from the serpent goes off like a thunderclap in, what so far, has been a beautiful story. Why was there temptation in the garden all of the sudden? Everything was going so good. How did this talking snake get here? And why is he questioning what the Lord God has said?
 
 To answer that question we need to remember what the garden is and what the garden is not. If we don’t understand God’s use of the garden in developing and maturing and shaping man, then we will miss how He intends to use the garden in OUR life. 
 
