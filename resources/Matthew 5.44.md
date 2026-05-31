@@ -12,7 +12,7 @@ is_published: true
 ## Commentary
 Here is an incredible story of the transforming power of the Gospel to help us love our enemies. 
 
-American bomber Jacob DeShazer was eager to strike back after the Japanese bombed Pearl Harbor on December 7, 1941. He got his chance four months later.
+American bomber pilot Jacob DeShazer was eager to strike back after the Japanese bombed Pearl Harbor on December 7, 1941. He got his chance four months later.
 
 DeShazer flew his B-25 Bomber, the Bat Out of Hell, on a dangerous raid over Japan. After dropping his bombs on Nagoya, DeShazer lost his way in heavy fog and ejected as his plane ran out of fuel. He was taken prisoner, tortured by the Japanese, and threatened with imminent death. For almost two years, DeShazer suffered hunger, cold, and dysentery.
 
