@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-I heard someone put it this way: the kingdom of God doesn’t arrive like the 81st Airborne, it comes like leaven. Its arrival is like a seed going into the ground. The Kingdom is here with persuasion not brute force. 
+I heard someone put it this way: the kingdom of God doesn’t arrive like the 82nd Airborne Division. It comes like leaven. Its arrival is like a seed going into the ground. The Kingdom is here with persuasion not brute force. 
 
 This kingdom, which is the kingdom to rule all other kingdoms, is not like any other kingdom.
 
