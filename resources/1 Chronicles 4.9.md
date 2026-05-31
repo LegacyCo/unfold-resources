@@ -35,7 +35,7 @@ Some people live under names they never chose.
 
 Failure. Rejection. Disappointment. Shame. Pain. Family history. Things spoken over them. Things done to them. Things they did to themselves.
 
-Jabez reminds us that the story attached to your life can be brought before God. You do not have to pretend the pain was not real. Jabez’s name meant what it meant. His story began where it began.
+Jabez reminds us that the story attached to your life can be brought before God. You don't have to pretend the pain wasn't real. Jabez’s name meant what it meant. His story began where it began.
 
 But he prayed.
 
