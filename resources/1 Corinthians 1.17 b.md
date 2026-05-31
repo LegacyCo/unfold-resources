@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-There is wisdom from above (as James says in ==James 1:17==) and there is wisdom of this age. Interestingly, both James and Paul still call the inferior form "wisdom," but it is a wisdom of words, a "wisdom of the wise" (v19), a "wisdom of this world" (v20), human wisdom (2:4), wisdom of men (2:5), carnal, and demonic (James 3:15). 
+There is wisdom from above (as James says in ==James 3:17==) and there is wisdom of this age. Interestingly, both James and Paul still call the inferior form "wisdom," but it is a wisdom of words, a "wisdom of the wise" (v19), a "wisdom of this world" (v20), human wisdom (2:4), wisdom of men (2:5), carnal, and demonic (James 3:15). 
 
 True wisdom, as Paul teaches in this letter, belongs to God. And His wisdom is contrary to every other wisdom. And not only contrary, the world receives it as "foolish."
 
