@@ -33,8 +33,8 @@ Most people read the story of Cain as a story about murder. And because they hav
 
 Before Cain killed his brother, he tried to approach God on his own terms. And untold multitudes are still doing the same thing. They bring God their effort, their discipline, their giving, their service, their religious activity, their moral improvement, and they hope all of it will make them righteous and acceptable before Him. But no amount of sweat can cleanse the human heart. No offering produced by self-effort can repair what sin has broken.
 
-True righteousness can never come from you. It can only come to you.
+True righteousness can never come _from_ you. It can only come _to_ you.
 
 And it comes through faith in the life, death, and resurrection of Jesus Christ.
 
-This is the great difference between religion and the gospel. Religion brings God the fruit of human effort and asks Him to accept us because of what we have done. The gospel brings us to God empty-handed, trusting that we are accepted because of what Christ has done.
+This is the great difference between religion and the gospel. Religion brings God the fruit of human effort and asks Him to accept us because of what _we_ have done. The gospel brings us to God empty-handed, trusting that we are accepted because of what Christ has done.
