@@ -20,7 +20,7 @@ And yet, while He ministered on the earth, He had no place to lay His head.
 
 The One who made foxes their holes and birds their nests did not have a place to call home.
 
-There is something profoundly about this. The Son of Man came into His own world as a stranger. He came to the people He formed, and He was not received. He came as the true tabernacle of God among men, but there was no resting place for Him in the world as it stood under sin and death.
+There is something profound about this. The Son of Man came into His own world as a stranger. He came to the people He formed, and He was not received. He came as the true tabernacle of God among men, but there was no resting place for Him in the world as it stood under sin and death.
 
 Then we come to the cross.
 
@@ -40,7 +40,9 @@ So when Jesus comes, He comes to finish another work. Not the work of creation, 
 
 At Calvary, God rests *again*.
 
-The Son bows His head when the work is complete. The new creation has begun. What was lost in Adam is restored in Christ. The way back into the presence of God has been opened by the finished work of the Son.
+The Son bows His head when the work is complete. The new creation has begun. What was lost in Adam is restored in Christ. 
+
+The way back into the presence of God has been opened by the finished work of the Son.
 
 ## Application
 Salvation is not an invitation to begin earning our way back to God. It is an invitation to enter the rest of Jesus.
