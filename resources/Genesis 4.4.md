@@ -12,7 +12,7 @@ is_published: true
 ## Commentary
 There was something in Abel that caused the Lord to look favorably on his offering. I don’t believe it was just that Abel brought the firstborn of his flock. It was the heart posture of the worshipper that caused the worship to ascend.
 
-Abel came to God in faith, and that made all the difference. As Hebrews 11:6 tells us, "Without faith it’s impossible to please God."
+Abel came to God in faith, and that made all the difference. As ==Hebrews 11:6== tells us, "Without faith it’s impossible to please God."
 
 Hebrews 11 also says this about Abel, “Faith is the substance of things hoped for, the evidence of things not seen. For by...faith Abel offered to God a more excellent sacrifice than Cain, through which he obtained a witness that he was righteous…and though he is dead, he still speaks” (==Hebrews 11:1-4==).
 
