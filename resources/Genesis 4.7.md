@@ -35,4 +35,4 @@ You do not have to give in to what is crouching at the door.
 
 This is where many of us lose the battle. We treat temptation as though it has already decided the outcome. We say, “This is just how I am.” “This is what I always do.” “I can’t help it.” But Genesis 4:7 confronts that lie. Cain was not powerless in his anger, and neither are we powerless in ours.
 
-When sin is crouching, don't negotiate with it. Don't entertain it. Bring it into the light before God. Name it. Resist it. Rule over it before it rules over you.
+When sin is crouching, don't negotiate with it. Don't entertain it. Bring it into the light before God. Confess it. Resist it. Rule over it before it rules over you.
