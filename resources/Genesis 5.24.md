@@ -36,7 +36,7 @@ In the midst of so much evil that God was on the verge of washing it all away, H
 
 TJ Cole said that in the life of Enoch we see that the “finality of death caused by Adam’s sin, is in fact, not so final after all. Man was not born to die; he was born to live, and that life comes by walking with God.…Walking with God is the key to unlock the chains of death’s curse."
 
-What does it mean to "walk with God?” Walking with God is kind of a loose and nebulous expression that can mean lots of things if you want it to. If you Google that phrase these are some of the things you will find: Walking with God means to be in harmony with Him as you journey through life. Walking with God gives us assurance of his presence and power in our lives. Walking with God means you have aligned your will with His and seek every day to consider yourself "crucified with Christ." Walking with the Lord means you live to please Him and not yourself. Walking with God means aligning yourself with his will
+What does it mean to "walk with God?” Walking with God is kind of a loose and nebulous expression that can mean lots of things if you want it to. If you Google that phrase these are some of the things you will find: Walking with God means to be in harmony with Him as you journey through life. Walking with God gives us assurance of his presence and power in our lives. Walking with God means you have aligned your will with His and seek every day to consider yourself "crucified with Christ." Walking with the Lord means you live to please Him and not yourself. Walking with God means aligning yourself with his will.
 
 Those are great. But what does all of that practically look like?
 
