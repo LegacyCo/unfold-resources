@@ -12,7 +12,7 @@ is_published: true
 ## Word Study
 In this passage, God is speaking of "that day" (v2), "For over all the glory there will be a covering." The Hebrew word for "covering" is *huppa*. A Chuppah is a nuptial chamber that a Jewish couple stands under during their wedding ceremony.
 
-The word is used only 3x in Scripture: here, P==salm 19:5==, and ==Joel 2:16==.
+The word is used only 3x in Scripture: here, ==Psalm 19:5==, and ==Joel 2:16==.
 
 He creates above His people a nuptial covering. He brings His people under the covering of bridal covenant. We live under the covering of bridal intimacy with our Bridegroom.
 
