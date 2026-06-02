@@ -50,7 +50,17 @@ I think that’s what it was like for Enoch. More than anything else, he just wa
 
 And, for me, that’s the real takeaway of this story. As amazing as it is that Enoch walked with God and was no more, the power of this story isn’t so much that Enoch walked with God, it’s that God walked with Enoch. God entrusted Himself to a son of Adam. God was in relationship with a son of Adam. God enjoyed walking with this son of Adam so much that he just walked Him right on home to heaven.
 
-The scandalous message of the gospel is that we serve a God who walks with people. God walked with Adam in the garden (==Genesis 3:8==). He walked with Noah before the flood (==Genesis 6:9==). God invited Abraham to walk with Him in Genesis 17. God walked through Israel's camp in the wilderness (==Leviticus 26:12==, ==Deuteronomy 23:14==).  ==Revelation 2:1== says that Jesus walks among the seven golden lamp stands, which ==Revelation 1:20== says is the church.
+The scandalous message of the gospel is that we serve a God who walks with people. 
+
+God walked with Adam in the garden (==Genesis 3:8==).
+
+He walked with Noah before the flood (==Genesis 6:9==). 
+
+God invited Abraham to walk with Him in Genesis 17. 
+
+God walked through Israel's camp in the wilderness (==Leviticus 26:12==, ==Deuteronomy 23:14==).  
+
+==Revelation 2:1== says that Jesus walks among the seven golden lamp stands, which ==Revelation 1:20== says is the church.
 
 God wants to walk with you, to be with you, to have fellowship with you, to share His heart with you…to keep *you* from being drug down by the gravitational pull of Adam’s grave, too.
 
