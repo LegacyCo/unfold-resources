@@ -26,7 +26,7 @@ And the little girl said, “Well, every day God would come by and say to Enoch,
 
 “Then one day God came by and said, ‘Enoch, I have so much to tell you, let’s take a *long* walk today.’ So they were walking and walking, and finally Enoch said, ‘Lord, it’s getting late, I should probably get back home.’ And God said, ‘Enoch, we’re closer to My home than we are to yours; so why don’t you just come on home with Me.’ And so Enoch went home with God.”
 
-A simple little story to simplify something that we may be tempted to make more difficult than it really is. Enoch walked with God, and God enjoyed walking with this son of Adam. Those aren’t my words, those are actually God’s words. Hebrews 11:5, “By faith Enoch was taken away so that he did not see death…for before he was taken he had this testimony, he pleased God.” Or as another translation puts it, “He became a pleasure to God.”
+A simple little story to simplify something that we may be tempted to make more difficult than it really is. Enoch walked with God, and God enjoyed walking with this son of Adam. Those aren’t my words, those are actually God’s words. ==Hebrews 11:5==, “By faith Enoch was taken away so that he did not see death…for before he was taken he had this testimony, he pleased God.” Or as another translation puts it, “He became a pleasure to God.”
 
 Enoch’s walk of faith was pleasing to God. This is exactly what we saw in the life of Abel: it was faith that caused Abel’s offering to be received by God, and for God’s righteousness to be transferred to him. One of the bedrock principles of the kingdom, a primary lesson to be found in just about every story in the Bible, is that faith pleases God…and “without faith it is impossible to please God” (==Hebrews 11:6==). 
 
