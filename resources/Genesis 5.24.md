@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-The New Testament tells us that Enoch is the seventh person in the genealogy of Adam (Jude 14). Seven. The number of completion. The number of perfection. Something happens in this life of Enoch that is important for the overall story of the Bible. It may be a mystery, but it’s highlighted here for a reason. 
+The New Testament tells us that Enoch is the seventh person in the genealogy of Adam (==Jude 14==). Seven. The number of completion. The number of perfection. Something happens in this life of Enoch that is important for the overall story of the Bible. It may be a mystery, but it’s highlighted here for a reason. 
 
 Enoch is one of two people in the Bible who never died (the other being Elijah). Instead of entering the graveyard of Genesis 5, God *took* Enoch. Enoch didn’t just live, he walked with God. And because he walked with God, God broke Enoch free from what Enoch inherited from Adam.
 
