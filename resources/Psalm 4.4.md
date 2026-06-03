@@ -23,4 +23,4 @@ The way of the kingdom is stillness, meditation, sacrifice, trust.
 That's why the psalm moves from anger in verse 4 to peace in verses 7–8: “You have put gladness in my heart… I will both lie down in peace, and sleep; for You alone, O LORD, make me dwell in safety.”
 
 ## Cross Reference
-See Luke 6:11 for an example of what anger produced in the Pharisees - "They were filled with rage, and discussed with one another what they might do to Jesus."
+See ==Luke 6:11== for an example of what anger produced in the Pharisees - "They were filled with rage, and discussed with one another what they might do to Jesus."
