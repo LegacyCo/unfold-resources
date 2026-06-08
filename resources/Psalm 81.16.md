@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-One of the most heartbreaking statements in Scripture, "I would have." O, what God would have done if His people would only have followed Him! But they would not listen. The consequence was they were given over to their own stubbornness and counsel (v11-12 - cf ==Isaiah 30:1= and ==Romans 1:28==).
+One of the most heartbreaking statements in Scripture, "I would have." O, what God would have done if His people would only have followed Him! But they would not listen. The consequence was they were given over to their own stubbornness and counsel (see ==Isaiah 30:1== and ==Romans 1:28==).
 
 ## Application
 What is God longing to do in our day that hangs in the balance of obedience and faith? What has He said He will do if we just trust and follow Him? What is the potential "would have" that no one wants to have written over their generation? What is our "stubborn heart" tempting us to walk in? What good and logical decisions is our own counsel advising us to make?
