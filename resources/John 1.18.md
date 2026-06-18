@@ -16,7 +16,7 @@ The NKJV wrongly translates that part of the verse, "The only begotten Son." By 
 
 Why is this important? John is saying the only Son, who is in the arms of the Father, who has come to reveal the Father, He is God.
 
-Another important word to point out in this verse: *exegeomai*. Exegeomai means to make know, to explain, tell, unfold, to interpret.
+Another important word to point out in this verse: *exegeomai*. Exegeomai means to make known, to explain, tell, unfold, to interpret.
 
 God the only Son, who is in the arms of Father, has come to make known God in a way that no one has ever seen before. Only the Son can reveal the Father, because only the Son knows Him as He truly is. While Moses saw YHWH, He knew nothing of the Father — which is why John leads with this distinction in v17, "The law was given through Moses, but grace and truth came through Jesus Christ."
 
