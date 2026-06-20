@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-John 1 gives insight into this moment where Jesus is baptized by John. John the Baptist indicates the purpose of his ministry in general, and his ministry of baptism in particular, is to reveal the Messiah — the One who stands among them but is *not yet known* (John 1:26). 
+John 1 gives insight into this moment where Jesus is baptized by John. John the Baptist indicates the purpose of his ministry in general, and his ministry of baptism in particular, is to reveal the Messiah — the One who stands among them but is *not yet known* (==John 1:26==). 
 
 John came to "bear witness to the Light," to declare "this is He." His message was "repent, for the kingdom of God is at hand," and the response to that message was for the individual to confess their sin and be baptized in water. 
 
