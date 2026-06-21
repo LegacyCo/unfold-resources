@@ -1,8 +1,8 @@
 ---
-title:
-book_id:
-chapter:
-verse:
+title: The Law Can Tell You What's Wrong, But Not Fix What's Broken
+book_id: DEU
+chapter: 5
+verse: 29
 resource_type:
   - note
 topics:
