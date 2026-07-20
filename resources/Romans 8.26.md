@@ -15,3 +15,8 @@ Warren Wiersbe writes this about this passage: The Bible formula is that we pray
 In the Old Testament tabernacle, there was a small golden altar standing before the veil, and here the priest burned the incense (see ==Exodus 30:1–10== and ==Luke 1:1–11==). The incense is a picture of prayer. It had to be mixed according to God’s plan and could not be counterfeited by man. The fire on the altar is a picture of the Holy Spirit, for it is He who takes our prayers and “ignites” them in the will of God. It is possible to pray fervently in the flesh and never get through to God. It is also possible to pray quietly in the Spirit and see God’s hand do great things.
 
 ## Application
+Prayer is not powerful because of how we feel or even what we say. It is powerful because the Holy Spirit takes our weakness, searches what is in our hearts, and brings our prayers into agreement with the will of God.
+
+There will be moments when you do not know what to pray. Don't let that stop you. Your weakness is not a barrier to prayer; it's actually the place of powerful prayer. Bring God what you have—the burden, the confusion, even the silence—and trust the Holy Spirit to carry what you cannot articulate.
+
+What appears to be unimpressive may have greater weight than the loudest prayer produced by human effort. 
