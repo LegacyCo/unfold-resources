@@ -1,5 +1,5 @@
 ---
-title: The Family Line of Davide
+title: The Family Line of David
 book_id: 1CH
 chapter: 3
 verse: 1
