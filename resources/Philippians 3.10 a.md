@@ -1,5 +1,5 @@
 ---
-title: The Twofold Mark of the Believer
+title: The Two-fold Mark of the Believer
 book_id: PHP
 chapter: 3
 verse: 10
