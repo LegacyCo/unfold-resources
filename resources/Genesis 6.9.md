@@ -27,7 +27,7 @@ If God saw Noah as righteous and blameless even though he wasn’t sinless, what
 
 This is the gospel. This is what new covenant grace looks like.
 
-When you believe that Jesus is who He says He is, He speaks righteousness over you. And it’s that declaration of righteousness proclaimed over your life that brings you into the place of wholeness. That’s what Paul says in Romans 4:6 (TPT), “Even king David speaks to us regarding the complete wholeness that comes inside a person when God’s powerful declaration of righteousness is heard over their life.”
+When you believe that Jesus is who He says He is, He speaks righteousness over you. And it’s that declaration of righteousness proclaimed over your life that brings you into the place of wholeness. That’s Paul’s point in ==Romans 4:6==—David describes the *blessedness* of the one to whom God imputes righteousness apart from works. And that blessedness isn’t a mild religious happiness; it’s the complete wholeness that comes inside a person when God’s declaration of righteousness is heard over their life.
 
 The moment you put your faith in Jesus, you become brand new, and God releases a powerful declaration over you that says, “This one is now righteous!”
 
