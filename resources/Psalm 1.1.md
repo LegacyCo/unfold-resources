@@ -28,7 +28,9 @@ The progression also helps explain how patterns become established. Sin in isola
 
 In this sense, the psalm is less concerned with a single act and more concerned with a trajectory. The danger is not only in stepping into the sphere of the wicked, but in remaining there long enough for it to shape one’s reality.
 
-By contrast, the blessed life is marked by a conscious interruption of that progression. It doesn't begin the walk, doesn't linger in the path, and refuses to take a seat. It resists not only participation, but the slow settling that leads to it.
+By contrast, the blessed life is marked by a conscious interruption of that progression. It doesn't begin the walk, doesn't linger in the path, and refuses to take a seat. 
+
+It resists not only participation, but the slow settling that leads to it.
 
 ## Application
 Pay attention to what you have become comfortable with that would have troubled you in a previous season.
