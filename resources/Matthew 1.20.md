@@ -30,7 +30,7 @@ Scripture is full of stories just like this where God communicates to people thr
 
 These stories are not in the Bible simply to serve as historical record. They show us one of the ways God speaks into the human situation. 
 
-Our family has been greatly impacted by dreams. The trajectory of our story has been shaped by God speaking to us in dreams. Each major move that we have made was initiated by a dream. Of course, we don't receive a dream without carefully considering it, praying into it, submitting it to others we trust and are in relationship with, and often waiting for a confirmation. But with childlike faith, when we have a dream we believe is from the Lord, we do our best to steward that dream well.
+Our family has been greatly impacted by dreams. The trajectory of our story has been shaped by God speaking to us in dreams. Each major move that we have made was initiated by a dream. Of course, we don't receive a dream without carefully considering it, praying into it, submitting it to others we trust and are in relationship with, and often patiently waiting for a confirmation. But with childlike faith, when we have a dream we believe is from the Lord, we do our best to steward that dream well.
 
 ## Application
 If you're not sure if you've ever had a dream from the Lord, ask Him to speak to you in a dream tonight. James says, "You have not because you ask not" (==James 4:2==). You may wonder, "Well, how do I know if it's my own thoughts or the Lord?" With faith like a child, trust that the Good Shepherd knows how to speak to His sheep, His sheep know His voice, and will not follow the voice of another (==John 10:27-28==). 
