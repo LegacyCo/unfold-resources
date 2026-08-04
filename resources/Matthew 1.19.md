@@ -20,7 +20,7 @@ He could expose Mary publicly. If Mary was assumed to have been sexually unfaith
 
 Or Joseph could divorce her quietly.
 
-That likely meant he would end the betrothal with as little public exposure as possible. Instead of bringing formal accusation against her, he would dismiss her privately, protecting her from becoming a public example. Matthew is showing us that Joseph was righteous, but his righteousness was not cold or vindictive. He wanted to honor God’s law without crushing Mary under public shame.
+That likely meant he would end the betrothal with as little public exposure as possible. Instead of bringing formal accusation against her, he would dismiss her privately, protecting her from becoming a public example. Matthew is showing us that Joseph wanted to honor God’s law without crushing Mary under public shame.
 
 For Mary, this would still have been devastating.
 
