@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-The blessed man is not merely avoiding bad influence. He is actively anchored in something better. Refusal alone does not sustain a life of blessing. It creates space, but something must fill that space.
+The blessed man isn't just avoiding bad influence. He is actively anchored in something better. Refusal alone does not sustain a life of blessing. It creates space, but something must fill that space.
 
 For the blessed man, the law of the Lord is what fills that space. 
 
