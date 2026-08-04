@@ -16,17 +16,17 @@ Between this verse and Matthew 2:22, Matthew records six instances of God speaki
 
 Scripture is full of stories just like this where God communicates to people through a dream. For example: 
 
--Jacob: God confirms His covenant promises (Gen 28:10-22)
+-Jacob: God confirms His covenant promises (==Genesis 28:10-22==)
 
--Joseph: God shows him the trajectory of his life (Gen 37:5-11)
+-Joseph: God shows him the trajectory of his life (==Genesis 37:5-11==)
 
--Pharaoh: God warns him about the coming famine (Gen 41)
+-Pharaoh: God warns him about the coming famine (==Genesis 41:1-7==)
 
--Solomon: God gives him the gift of wisdom (1 Kings 3:5-15)
+-Solomon: God gives him the gift of wisdom (==1 Kings 3:5-15==)
 
--Nebuchadnezzar: God warns him about pride (Dan 4)
+-Nebuchadnezzar: God warns him about pride (==Daniel 4:10-18==)
 
--Paul: God tells him to remain in Corinth (Acts 18:9-10)
+-Paul: God tells him to remain in Corinth (==Acts 18:9-10==)
 
 These stories are not in the Bible simply to serve as historical record. They show us one of the ways God speaks into the human situation. 
 
