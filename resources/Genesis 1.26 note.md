@@ -6,10 +6,7 @@ verse: 26
 resource_type:
   - note
 topics:
-  - 
-  - 
 themes:
-  - 
 is_published: true
 ---
 ## Commentary
