@@ -14,7 +14,7 @@ In the creation story we see light mentioned on two different days; day one, whe
 
 The physical world that God created is designed to mirror the spiritual world. The most important thing in the spiritual world is...God. So it’s fitting that the first thing God creates in the physical world is a representation of Himself — light. 
 
-The first thing that God says to creation about Himself is, "I am like this...light." As John writes in 1 John 1:5, "This is the message which we have heard from Him and declare to you, that God is light and in Him is no darkness at all." 
+The first thing that God says to creation about Himself is, "I am like this...light." As John writes in ==1 John 1:5==, "This is the message which we have heard from Him and declare to you, that God is light and in Him is no darkness at all." 
 
 James writes in ==James 1:17== that God is the "Father of lights". God is the uncreated, eternal light. And the first thing He did in creation was reveal Himself.
 
@@ -22,7 +22,7 @@ There was no source for Day One light other than the Spirit of God speaking it i
 
 So we see in the creation story that there is Day *One* light and there is Day *Four* light. Two different lights mentioned in creation. 
 
-One of the differences between Day One light and Day Four light is that Day One light is eternal, while Day Four light is temporary. Listen to Revelation 21:23-25, "The city (New Jerusalem) had no need of the sun or of the moon to shine in it, for the glory of God has illuminated it. The Lamb is its light. And the nations of those who are saved shall walk in its light, and the kings of the earth bring their glory and honor into it. Its gates shall not be shut at all by day (there shall be no night there)."
+One of the differences between Day One light and Day Four light is that Day One light is eternal, while Day Four light is temporary. Listen to ==Revelation 21:23-25==, "The city (New Jerusalem) had no need of the sun or of the moon to shine in it, for the glory of God has illuminated it. The Lamb is its light. And the nations of those who are saved shall walk in its light, and the kings of the earth bring their glory and honor into it. Its gates shall not be shut at all by day (there shall be no night there)."
 
 But I would suggest that we are actually dealing with *three* kinds of light: Day One light (which testifies of what God is like), Day Four light (the light of the sun, moon, and stars), and the *uncreated* light of God Himself (==Ps 36:9== - “In Your light we see light”).
 	
@@ -32,7 +32,7 @@ Consider the words of Jesus in Matthew 5:14, "You are the light of the world." W
 
 Jesus says we are _Day One_ light — the light shining through the darkness that testifies of the eternal light of God. 
 
-Paul makes this connection in 2 Corinthians 4:6, "For it is the God who commanded light to shine out of darkness, when He shined in our hearts the brilliant dawning light of the knowledge of the glory of God in the face of Jesus Christ."
+Paul makes this connection in ==2 Corinthians 4:6==, "For it is the God who commanded light to shine out of darkness, when He shined in our hearts the brilliant dawning light of the knowledge of the glory of God in the face of Jesus Christ."
 
 Before you were saved, you were in darkness. You were blinded by darkness and unable to see the truth of who God is (see ==Ephesians 5:8==). But just as God caused Day One light to shine into creation to reveal Himself in light, when you were born again in Christ, the first thing He did was cause the light of His glory to shine in your heart and open the eyes of your understanding to see the beauty of the gospel in the face of Jesus. You were suddenly able to see Someone who had always been there, but who was hidden by your darkness. He commanded light to shine on you so that you could see. And now that you can see Him, He says, “Shine, just like I shine.”
 
