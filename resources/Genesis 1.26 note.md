@@ -6,16 +6,16 @@ verse: 26
 resource_type:
   - note
 topics:
-  - dominion
-  - authority
+  - 
+  - 
 themes:
-  - Authority
+  - 
 is_published: true
 ---
 ## Commentary
 The word that we translate "dominion" means to rule over, to have authority over. Authority in the kingdom of God is not something that one attains, it is something that is given. This shows us something of God; from the very beginning His plan was to demonstrate Himself through His people to whom He has given authority.
 
-God has determined for humanity to be His ambassadors in creation. When He created man, He gave man the authority to rule and reign on His behalf. In fact, He gave man so much authority that man had the authority to give it away. That's exactly what happens two chapters later when Adam and Eve sinned. The authority that God gave man was given to Satan. We see the devil standing on this authority when he tempts Jesus in the wilderness, "All this authority I will give You, and their glory, for this has been delivered to me, and I give it to whomever I wish" (==Luke 4:6==).
+God has determined for humanity to be His ambassadors in creation. When He created man, He gave man the authority to rule and reign on His behalf. In fact, He gave man so much authority that man had the authority to give it away. That's exactly what happens two chapters later when Adam and Eve sinned. The authority that God gave man was surrendered to Satan. We see the devil standing on this authority when he tempts Jesus in the wilderness, "All this authority I will give You, and their glory, for this has been delivered to me, and I give it to whomever I wish" (==Luke 4:6==).
 
 Of course, this was not the way for humanity to regain the authority that Adam lost in the garden. What was required was a son of Adam to lay down His life as a sacrifice for all descendants of Adam. 
 
@@ -30,7 +30,7 @@ What was given in creation — and lost in the garden — was restored at the cr
 ## Word Study
 The Hebrew word that we translate “man" is adam. So Adam was not only the first man’s name, adam is also the descriptive Hebrew term for what he _is_. This becomes interesting when we begin seeing passages describing Jesus as the Son of Man.
 
-This will also become important when we start reading about the land in Genesis 2:5.
+This will also become important when we start reading about the land in ==Genesis 2:5==.
 
 ## Application
 As the redeemed children of God, we now ground the kingdom of God into the soil of our communities one act of obedience at a time. When we intersect with a situation that seems to contradict the victory of Christ's sacrifice, we stand on the authority that He has given us to bring what is out of alignment with His victory into alignment: sickness, hopelessness, famine, poverty, the lost, unforgiveness...anything that presently doesn't bring glory to the Man who died to make all things new.
