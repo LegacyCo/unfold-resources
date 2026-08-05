@@ -14,13 +14,9 @@ is_published: true
 
 The creation story shows the resemblance between the empty void in creation before God brought life and light to that emptiness, and the state you and I were in before God gave us light to see Him. 
 
-Isaiah makes this connection in Isaiah 60:2,
+Isaiah makes this connection in ==Isaiah 60:2==, "For behold, the darkness shall cover the earth, And deep darkness the people; But the LORD will arise over you, And His glory will be seen upon you." 
 
-"For behold, the darkness shall cover the earth, And deep darkness the people; But the LORD will arise over you, And His glory will be seen upon you." 
-
-Paul does the same in Colossians 1:13,
-
-“He has delivered you from the power of darkness” 
+Paul does the same in ==Colossians 1:13==, “He has delivered you from the power of darkness” 
 
 So much mystery surrounds the creation story, but one thing becomes clear in creation: God makes all things new. He brings chaos into order. He makes broken things whole. He brings light to things that are hidden in confusion. If He could do it with the void that existed before Genesis 1:2, then He can do it with whatever circumstance you may find yourself in.
 
