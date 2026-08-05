@@ -14,7 +14,7 @@ is_published: true
 
 Spirit has no boundary to it. Spirit isn’t confined by skin. Spirits don’t sit side by side like bricks—spirit mingles together like breath. Which means that in God’s design, one spirit can be joined to another spirit without either one losing itself.
 
-You see this mystery perfectly in the Trinity. Jesus prays, “You, Father, are in Me, and I in You” (==John 17:21==). The Godhead is perfectly in union with Himself while remaining completely distinct in His identity as Father, Son, and Spirit. Union without loss of identity.
+You see the tension of this mystery held in perfect balance in the Trinity. Jesus prays, “You, Father, are in Me, and I in You” (==John 17:21==). The Godhead is perfectly in union with Himself while remaining completely distinct in His identity as Father, Son, and Spirit. Union without loss of identity.
 
 So when God says, “Let Us make man in Our image and likeness,” He’s declaring His design: humanity was created as spiritual beings capable of being one with God while keeping our own unique, created purpose. He designed you to be joined to Him without you disappearing into Him. You don’t get absorbed; you get filled. “He who is joined to the Lord is one spirit with Him” (==1 Corinthians 6:17==)—one spirit, and still fully *you*.
 
