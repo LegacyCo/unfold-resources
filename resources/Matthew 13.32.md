@@ -1,8 +1,8 @@
 ---
 title: The Mystery of the Kingdom
-book_id:
-chapter:
-verse:
+book_id: MAT
+chapter: 13
+verse: 32
 resource_type:
   - note
 topics:

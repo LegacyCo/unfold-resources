@@ -1,8 +1,8 @@
 ---
 title: Gravity-Defying Thoughts
-book_id:
-chapter:
-verse:
+book_id: COL
+chapter: 3
+verse: 2
 resource_type:
   - note
 topics:

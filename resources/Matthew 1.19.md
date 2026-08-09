@@ -1,8 +1,8 @@
 ---
 title: Absorbing the Shame
 book_id: MAT
-chapter: 1.19
-verse:
+chapter: 1
+verse: 19
 resource_type:
   - note
 topics:

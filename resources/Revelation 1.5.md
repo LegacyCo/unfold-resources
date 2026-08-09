@@ -1,8 +1,8 @@
 ---
 title: He Has Untied Us
-book_id:
-chapter:
-verse:
+book_id: REV
+chapter: 1
+verse: 5
 resource_type:
   - note
 topics:

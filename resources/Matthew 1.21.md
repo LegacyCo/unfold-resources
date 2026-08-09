@@ -1,8 +1,8 @@
 ---
 title: What's In a Name?
-book_id:
-chapter:
-verse:
+book_id: MAT
+chapter: 1
+verse: 21
 resource_type:
   - note
 topics:

@@ -1,8 +1,8 @@
 ---
 title: Through Defeat Came Victory
-book_id:
-chapter:
-verse:
+book_id: 1CO
+chapter: 1
+verse: 21
 resource_type:
   - note
 topics:

@@ -1,8 +1,8 @@
 ---
-title:
-book_id:
-chapter:
-verse:
+title: The Chief of the Graces
+book_id: LUK
+chapter: 22
+verse: 24
 resource_type:
   - note
 topics:

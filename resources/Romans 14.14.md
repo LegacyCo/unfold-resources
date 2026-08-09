@@ -1,8 +1,8 @@
 ---
 title: All Things Are Pure
-book_id:
-chapter:
-verse:
+book_id: ROM
+chapter: 14
+verse: 14
 resource_type:
   - note
 topics:

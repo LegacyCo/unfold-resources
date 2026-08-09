@@ -1,8 +1,8 @@
 ---
 title: The Wisdom of the Cross
-book_id:
-chapter:
-verse:
+book_id: 1CO
+chapter: 1
+verse: 18
 resource_type:
   - note
 topics:

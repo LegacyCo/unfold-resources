@@ -1,8 +1,8 @@
 ---
 title: Justification By Faith Alone
-book_id:
-chapter:
-verse:
+book_id: ROM
+chapter: 3
+verse: 27
 resource_type:
   - note
 topics:

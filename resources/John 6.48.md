@@ -1,8 +1,8 @@
 ---
 title: The Offense of it All
-book_id:
-chapter:
-verse:
+book_id: JHN
+chapter: 6
+verse: 48
 resource_type:
   - note
 topics:

@@ -2,7 +2,7 @@
 title: The Joy of the Table
 book_id: 1CO
 chapter: 11
-verse:
+verse: 25
 resource_type:
   - note
 topics:

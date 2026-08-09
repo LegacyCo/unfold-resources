@@ -1,8 +1,8 @@
 ---
 title: The Position and the Anointing
-book_id:
-chapter:
-verse:
+book_id: 1SA
+chapter: 15
+verse: 23
 resource_type:
   - note
 topics:
