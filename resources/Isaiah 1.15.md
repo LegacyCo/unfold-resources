@@ -24,11 +24,11 @@ This same principle shows up throughout Scripture.
 
 Peter tells husbands to live with their wives in an understanding way and to honor them, “that your prayers may not be hindered” (==1 Peter 3:7==). That means a man cannot dishonor his wife and then assume God will ignore it when he prays.
 
-Psalm 66:18 says, “If I regard iniquity in my heart, the Lord will not hear.” The issue is unrepentant sin that refuses to be brought into the light of forgiveness.
+==Psalm 66:18== says, “If I regard iniquity in my heart, the Lord will not hear.” The issue is unrepentant sin that refuses to be brought into the light of forgiveness.
 
-Jesus says something similar in Mark 11:25: “Whenever you stand praying, forgive, if you have anything against anyone.” Unforgiveness has a way of standing in the room with us when we pray. We may try to speak past it, but God does not pretend it is not there.
+Jesus says something similar in ==Mark 11:25==: “Whenever you stand praying, forgive, if you have anything against anyone.” Unforgiveness has a way of standing in the room with us when we pray. We may try to speak past it, but God does not pretend it is not there.
 
-James also says, “You ask and do not receive, because you ask wrongly, to spend it on your passions” (James 4:3). There are prayers that are hindered not only by obvious sin, but by desires that are out of alignment. The mouth may be saying, “God, help me,” while the heart is saying, “God, serve me.”
+James also says, “You ask and do not receive, because you ask wrongly, to spend it on your passions” (==James 4:3==). There are prayers that are hindered not only by obvious sin, but by desires that are out of alignment. The mouth may be saying, “God, help me,” while the heart is saying, “God, serve me.”
 
 So yes, there are things that hinder prayer.
 
