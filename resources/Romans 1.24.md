@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-This is the first of three times in the remainder of Romans 1 where Paul uses the language of God “giving them up” or “giving them over” (Romans 1:24, 26, 28). Paul is showing us that the judgment of God is not always seen in God actively striking someone down. Sometimes His judgment is seen in Him allowing people to have what they have insisted on having.
+This is the first of three times in the remainder of Romans 1 where Paul uses the language of God “giving them up” or “giving them over” (==Romans 1:24==, ==Romans 1:26==, ==Romans 1:28==). Paul is showing us that the judgment of God is not always seen in what we would call a "punishment." Sometimes His judgment is seen in Him allowing people to have what they have insisted on having.
 
 This reveals something significant about the nature of God. God does not force obedience. He does not create people for communion with Himself and then coerce them into love. He reveals Himself and invites us to walk with Him, but He does not violate the will in order to produce worship. Love cannot be forced. Obedience that has to be coerced is not the obedience of faith.
 
