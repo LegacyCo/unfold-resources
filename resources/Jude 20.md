@@ -14,7 +14,7 @@ This passage is very special to me. I have memorized it and pray it often. Jude 
 
 The Greek word we translate "building" comes from the word _oikodomeo_ - the process of building. Picture a construction site and imagine the work and intentionality that goes into building a structure where there was none. This is what is taking place in you and I. God is "constructing" something of eternal value in us. And we have the privilege of participating in the process. He supplies the grace and, by faith, we grab hold of that grace and become conformed to the image of Christ (==Romans 8:29==).
 
-Paul uses this word extensively to describe the planting, growth, and expansion of the church community through the work of the Spirit (for example: ==1 Corinthians 14:12==, 1 Corinthians 14:17==, ==1 Corinthians 14:26==; ==1 Corinthians 8:1==, ==Rom 14:19==, ==Romans 15:2==, ==Ephesians 4:12==, ==Ephesians 4:29==, ==1 Thessalonians 5:11==).
+Paul uses this word extensively to describe the planting, growth, and expansion of the church community through the work of the Spirit (for example: ==1 Corinthians 14:12==, ==1 Corinthians 14:17==, ==1 Corinthians 14:26==; ==1 Corinthians 8:1==, ==Rom 14:19==, ==Romans 15:2==, ==Ephesians 4:12==, ==Ephesians 4:29==, ==1 Thessalonians 5:11==).
 
 ## Application
 Spiritual disciplines help us "build" Christ-like character in our lives; prayer, fasting, Bible reading, silence and solitude, waiting on the Lord, generosity, etc. Below is a section taken from Dallas Willard's book, _The Spiritual Disciplines_. He uses a great illustration to help us understand the importance of spiritual disciplines in "building ourselves up."
