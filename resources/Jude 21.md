@@ -6,10 +6,7 @@ verse: 21
 resource_type:
   - note
 topics:
-  - love
-  - faith
 themes:
-  - spiritual discipline
 is_published: true
 ---
 ## Commentary
