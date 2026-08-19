@@ -6,10 +6,7 @@ verse: 1
 resource_type:
   - note
 topics:
-  - beloved
-  - love
 themes:
-  - God's Love
 is_published: true
 ---
 ## Commentary
