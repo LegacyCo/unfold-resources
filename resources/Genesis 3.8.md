@@ -10,9 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-Fear and shame caused Adam to hide from God. Let's look at shame first and then fear.
-
-If you go back in the story to chapter 2, which is before Adam and Eve sinned, v25 says that they were naked and *not* ashamed. But now, as a result of being guilty of disobeying God, they feel shame for the first time. 
+Fear and shame caused Adam to hide from God. If you go back in the story to chapter 2, which is before Adam and Eve sinned, v25 says that they were naked and *not* ashamed. But now, as a result of being guilty of disobeying God, they feel shame for the first time. 
 
 Guilt is a condition based on something you have done. 
 
