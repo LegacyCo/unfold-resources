@@ -32,11 +32,11 @@ Let me tell you very clearly: Jesus is the only answer for the problem of sin. I
 
 ==Psalm 25:8== says, "He shows sinners the way.” 
 
-Ephesians 2:4-6 says, “…Because of His great love with which He loved us, even when we were dead in our sins, He made us alive with Christ…and raised us up, and seated us in heavenly places.”
+==Ephesians 2:4-6== says, “…Because of His great love with which He loved us, even when we were dead in our sins, He made us alive with Christ…and raised us up, and seated us in heavenly places.”
 
 When a woman was caught in the act of adultery and brought before Jesus, He didn't turn His back on her and say “I can’t look at you.” He turned the tables on the religious leaders who tried to use that woman to trap Him. "You want to stone this woman to death for what she has done? Fine, the law of Moses gives you permission to do that. So whoever of you is without sin, you be the first one to cast your stone at this daughter." When they all leave, Jesus looks that woman straight in the eyes and tells her she is forgiven (see ==John 8:1-11==).
 
-Here's a question for you: in that moment, when Jesus was in the dust with the adulterer, where was the God who Adam was so afraid of? Was He turning His back on the woman because God can’t look on sin? Did the Father need to have a sit down with Jesus to remind He can’t do that sort of thing? Does God have a split personality, and Jesus is the part of the Trinity who draws us in with His tender love and humility while the God of the Old Testament keeps us in line with His wrath and judgement? Where was the God of the Old Testament — the One who Adam was hiding in the bushes from — where was He when Jesus was forgiving adulterers and eating with sinners? 
+Here's a question for you: in that moment, when Jesus was in the dust with the adulterer, where was the God who Adam was so afraid of? Was He turning His back on the woman because God can’t look on sin? Did the Father need to have a sit down with Jesus to remind Him that He can’t do that sort of thing? Does God have a split personality, and Jesus is the part of the Trinity who draws us in with His tender love and humility while the God of the Old Testament keeps us in line with His wrath and judgement? Where was the God of the Old Testament — the One who Adam was hiding in the bushes from — where was He when Jesus was forgiving adulterers and eating with sinners? 
 
 ==2 Corinthians 5:19== tells us exactly where He was. He was *in Christ* reconciling them to Himself, not counting their transgressions against them.
 
