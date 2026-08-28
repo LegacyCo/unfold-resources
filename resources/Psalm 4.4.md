@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-The ESV amd NKJV translate this verse, "Be angry, amd do note sin." Anger is a natural human emotion. There is no sin in the emotion itself. The danger comes when anger begins to take on language, inform our decisions, and shape how we treat others.
+The ESV amd NKJV translate this verse, "Be angry, and do not sin." Anger is a natural human emotion. There is no sin in the emotion itself. The danger comes when anger begins to take on language, inform our decisions, and shape how we treat others.
 
 David’s instruction is not, “Pretend you are not angry.” It is, “Be angry...and do not sin.” In other words, the first response to anger must be to bring it under control. It must be taken before God before it is expressed toward the person who offended us.
 
