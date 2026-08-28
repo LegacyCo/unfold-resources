@@ -16,7 +16,7 @@ David’s instruction is not, “Pretend you are not angry.” It is, “Be angr
 
 The biblical response to anger is stillness. David says to meditate within your heart on your bed and be still. That means we do not immediately vent, accuse, defend ourselves, or rehearse the offense until it becomes larger than it needs to be. We bring the matter into the quiet place before God. We examine our own heart. We allow Him to search our motives, calm our emotions, and deal with any injustice in the way only He can.
 
-The world often treats venting as healing. Scripture doesn't agree. Proverbs 18:2 says, “A fool has no delight in understanding, but in expressing his own heart.” Our emotional expression when we are angry feels honest and justified, but it is actually foolish. It may release pressure for a moment, but it is not the way of the kingdom.
+The world often treats venting as healing. Scripture doesn't agree. ==Proverbs 18:2== says, “A fool has no delight in understanding, but in expressing his own heart.” Our emotional expression when we are angry feels honest and justified, but it is actually foolish. It may release pressure for a moment, but it is not the way of the kingdom.
 
 The way of the kingdom is stillness, meditation, sacrifice, trust. 
 
