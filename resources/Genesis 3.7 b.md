@@ -2,7 +2,7 @@
 title: Opened Eyes
 book_id: GEN
 chapter: 3
-verse: 13
+verse: 7
 resource_type:
   - note
 topics:
