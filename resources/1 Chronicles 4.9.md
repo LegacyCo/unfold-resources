@@ -26,7 +26,7 @@ That's the power of this little story tucked in the pages of an often skipped-ov
 
 Jabez teaches us that where a person begins does not determine where God can take them. The Lord is able to bless, guard, enlarge, and preserve those who call upon Him.
 
-There are mny stories of name changes in the Bible. Jacob’s name was tied to grasping and striving, but God renamed him Israel (==Genesis 32:28==). Naomi said, “Call me Mara,” because the Almighty had dealt bitterly with her, but God was still writing redemption into her story through Ruth and Boaz (==Ruth 1:20–21==, ==Ruth 4:13–17==). Simon was renamed Peter, not because he was already stable, but because Jesus saw what grace would make him (==John 1:42==, ==Matthew 16:18==).
+There are many stories of name changes in the Bible. Jacob’s name was tied to grasping and striving, but God renamed him Israel (==Genesis 32:28==). Naomi said, “Call me Mara,” because the Almighty had dealt bitterly with her, but God was still writing redemption into her story through Ruth and Boaz (==Ruth 1:20–21==, ==Ruth 4:13–17==). Simon was renamed Peter, not because he was already stable, but because Jesus saw what grace would make him (==John 1:42==, ==Matthew 16:18==).
 
 Jabez stands in that same stream. The God of Israel is not limited by the name someone else gave you.
 
