@@ -66,7 +66,7 @@ God wants to walk with you, to be with you, to have fellowship with you, to shar
 
 More than anything else, I want to walk with God, every day — because He wants to walk with me. More than anything I could ever *do* for God or receive *from* Him, I just want to give Him my walk. I want to choose moment by moment to be directed by His steps. I want to have a consistent walk with God that evens out the highs and the lows of this life. I want long obedience in the same direction that causes nothing to move me, because I’m being led on a walk by Perfect Peace.
 
-Andrew Murray wrote this in his book, _Humility_, “The insignificances of daily life are the tests of eternity because because they prove what spirit really possesses us. It’s in our most unguarded moments that we really show and tell who we are. To know the Humble Man, you must (walk with Him) in the common course of daily life.”
+Andrew Murray wrote this in his book, _Humility_, “The insignificances of daily life are the tests of eternity because they prove what spirit really possesses us. It’s in our most unguarded moments that we really show and tell who we are. To know the Humble Man, you must (walk with Him) in the common course of daily life.”
 
 ## Application
 What about you, are you walking with God? Is that an expression that you would use for your life right now? 
