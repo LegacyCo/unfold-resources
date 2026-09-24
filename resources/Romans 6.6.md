@@ -1,5 +1,5 @@
 ---
-title: Jesus Didn't Die Alone
+title: No More Imposter Kings
 book_id: ROM
 chapter: 6
 verse: 6
