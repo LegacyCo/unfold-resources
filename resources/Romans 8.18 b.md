@@ -1,8 +1,8 @@
 ---
-title:
-book_id:
-chapter:
-verse:
+title: The Significance of Suffering
+book_id: ROM
+chapter: 8
+verse: 18
 resource_type:
   - note
 topics:
