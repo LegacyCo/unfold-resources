@@ -1,5 +1,5 @@
 ---
-title:
+title: He Crosses Over to Them
 book_id: MAT
 chapter: 8
 verse: 28
