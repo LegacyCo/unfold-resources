@@ -1,5 +1,5 @@
 ---
-title:
+title: Let Us Bring the Ark
 book_id: 1SA
 chapter: 4
 verse: 3
