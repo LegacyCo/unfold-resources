@@ -1,5 +1,5 @@
 ---
-title:
+title: He Judges in Righteousness
 book_id: PSA
 chapter: 9
 verse: 8
