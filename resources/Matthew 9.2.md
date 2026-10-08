@@ -1,5 +1,5 @@
 ---
-title: Saving Faith
+title: The Deeper Need First
 book_id: MAT
 chapter: 9
 verse: 2
