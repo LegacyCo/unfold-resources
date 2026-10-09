@@ -10,7 +10,7 @@ themes:
 is_published: true
 ---
 ## Commentary
-This is taken from Watchman Nee's words in "Spiritual Authority" - Man's rebellion against authority is manifested in word, in reason, in thought. If he does not know authority he will speak slanderous words; such words usually issue out of his reason.
+This is taken from Watchman Nee's words in _Spiritual Authority_ - Man's rebellion against authority is manifested in word, in reason, in thought. If he does not know authority he will speak slanderous words; such words usually issue out of his reason.
   
 Ham had his reason to slander his father, for Noah was naked.
 
