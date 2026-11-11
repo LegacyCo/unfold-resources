@@ -1,5 +1,5 @@
 ---
-title:
+title: When God Calls a Man
 book_id: 1CH
 chapter: 11
 verse: 3
