@@ -1,5 +1,5 @@
 ---
-title: Sau's End
+title: Saul's End
 book_id: 1CH
 chapter: 10
 verse: 6
